@@ -1,7 +1,7 @@
 ---
 title: Automated Ad Targeting with Cookiebot Technology
-date: 2024-08-20 18:46:53
-updated: 2024-08-22 10:32:28
+date: 2024-08-21T15:26:06.548Z
+updated: 2024-08-22T15:26:06.548Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c60589952f8c878c66c4d03c2dc7430570638a52b8139e832f43c3d01160d93d.png
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->

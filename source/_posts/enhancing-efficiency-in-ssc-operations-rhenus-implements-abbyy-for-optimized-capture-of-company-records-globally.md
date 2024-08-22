@@ -1,7 +1,7 @@
 ---
 title: Enhancing Efficiency in SSC Operations - Rhenus Implements ABBYY for Optimized Capture of Company Records Globally
-date: 2024-08-20 10:42:19
-updated: 2024-08-22 10:14:43
+date: 2024-08-21T15:26:07.921Z
+updated: 2024-08-22T15:26:07.921Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3f589c4c694fba40159c8b6c.jpg
@@ -23,6 +23,9 @@ Transportation & Logistics | Document Processing | Shipping Documents
 
 輸送およびロジスティクス | 輸送関連書類 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

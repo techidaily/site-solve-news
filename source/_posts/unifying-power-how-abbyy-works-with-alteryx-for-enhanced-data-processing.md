@@ -1,7 +1,7 @@
 ---
 title: "Unifying Power: How ABBYY Works with Alteryx for Enhanced Data Processing"
-date: 2024-08-21 22:39:16
-updated: 2024-08-22 11:29:33
+date: 2024-08-21T15:26:07.195Z
+updated: 2024-08-22T15:26:07.195Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0ef39d9a604e71499226be4f237e87d1b86c04c6f94c96b9949bbc0cc087d2d2.jpg
@@ -59,6 +59,9 @@ Alteryx APAのデータを活用した作業プロセスやプロセスの変動
 
 コストや期間、ボリュームといった定量化が可能なプロセスメトリックスを活用し、データドリブンな決定を行うための論拠を自動的に生成します。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Process Intelligenceにより強化されたAlteryx APA Platform™ 
 
 エンドツーエンドの業務プロセスを最適化するプロセス分析可能なAPA。 
@@ -73,6 +76,9 @@ Alteryx向けABBYY コネクタは、ABBYY TimelineプラットフォームとAl
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/alteryx.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 #### ユースケース
 
 分析およびデータサイエンス・オートメーションをProcess Intelligenceと組み合わせ、デジタル・トランスフォーメーションを加速させる。
@@ -91,6 +97,9 @@ ABBYY Timelineは、合法の範囲を超えて通報の対象となる疑いが
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image-2.jpg?h=716&iar=0&w=1272)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
 ##### ブログ 
@@ -103,6 +112,9 @@ ABBYY Timelineは、合法の範囲を超えて通報の対象となる疑いが
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
 
 ##### ビデオ 
@@ -115,6 +127,10 @@ ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエン�
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ##### ウェビナー
 
 #### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
@@ -157,6 +173,9 @@ See how you can gain a 360-degree view of your business operations, enabling bus
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ##### ブログ 
 
 #### ABBYY Timeline Connector for Alteryx®のご紹介 
@@ -169,6 +188,9 @@ See how you can gain a 360-degree view of your business operations, enabling bus
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ##### ビデオ 
 
 #### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
@@ -179,6 +201,9 @@ ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエン�
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ##### ウェビナー
 
 #### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
@@ -187,6 +212,9 @@ See how you can gain a 360-degree view of your business operations, enabling bus
 
 [ウェビナーを見る](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ### 専門家に相談してみませんか？
 
 [デモを予約する](https://tools.techidaily.com/abbyy/products/)[お問い合わせ](https://tools.techidaily.com/abbyy/products/)

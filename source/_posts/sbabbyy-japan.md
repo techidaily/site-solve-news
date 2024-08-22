@@ -1,7 +1,7 @@
 ---
 title: "SBモバイルサービスとABBYY Japanのコラボ:最先端ソフトウェア提供を開始します - 新規事業発表"
-date: 2024-08-21 17:31:33
-updated: 2024-08-22 12:58:18
+date: 2024-08-21T15:26:07.153Z
+updated: 2024-08-22T15:26:07.153Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5070ff282ccb187d0c91a9e169ae0c941c19518a9f8408e2327a12770828cd7d.jpg
@@ -63,3 +63,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

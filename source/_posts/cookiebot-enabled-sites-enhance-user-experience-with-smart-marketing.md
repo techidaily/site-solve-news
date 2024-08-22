@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Enabled Sites | Enhance User Experience with Smart Marketing
-date: 2024-08-20 12:42:48
-updated: 2024-08-22 11:15:35
+date: 2024-08-21T15:26:08.731Z
+updated: 2024-08-22T15:26:08.731Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/647ef78b4d08f0529cf98c1ddda37990b536ba3daaeb866103686a0f1d6cb404.jpg
@@ -30,10 +30,16 @@ En même temps, la mise en page de chacune des pages est décortiquée et chaque
 Les résultats de cette analyse sont utilisés pour retrouver la structure et la mise en page d’un document dans un scénario de réutilisation du contenu. Toutes les images et les diagrammes sont conservés dans leur présentation d’origine sans texte reconnu.
   
   
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ### Spécification de blocs manuels pour la reconnaissance par champ
 
 Les zones de reconnaissance de texte peuvent être définies manuellement. Dans ce cas, le champ pertinent est défini directement et l’analyse automatisée du document n’est pas nécessaire. Lors de l’étape ultérieure de reconnaissance, l’outil de reconnaissance reçoit des informations à propos des coordonnées et des propriétés des champs nécessaires et applique l’OCR uniquement à la zone spécifiée.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)[Contactez-nous](https://tools.techidaily.com/abbyy/products/)

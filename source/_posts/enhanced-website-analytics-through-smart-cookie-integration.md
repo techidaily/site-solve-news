@@ -1,7 +1,7 @@
 ---
 title: Enhanced Website Analytics Through Smart Cookie Integration
-date: 2024-08-21 18:50:10
-updated: 2024-08-22 12:32:20
+date: 2024-08-21T15:26:07.918Z
+updated: 2024-08-22T15:26:07.918Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a6435a313e4469213bebd5ae38a7530a7b0364be00feda91bc9b60c48edb8ed3.jpg
@@ -95,6 +95,9 @@ ABBYY’s Intelligent Document Processing platform integrates with Election Mana
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

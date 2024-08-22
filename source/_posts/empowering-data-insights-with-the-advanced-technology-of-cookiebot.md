@@ -1,7 +1,7 @@
 ---
 title: Empowering Data Insights with the Advanced Technology of Cookiebot
-date: 2024-08-21 12:26:32
-updated: 2024-08-22 10:24:46
+date: 2024-08-21T15:26:07.496Z
+updated: 2024-08-22T15:26:07.496Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acf475c1e6fd1567e7a4a77c00bb440d7e3dd85bc4408fc0f7550af9263318d9.jpg
@@ -103,34 +103,54 @@ Au cours des dernières années, nos employés nous ont toujours attribué des n
 
 Comme la plupart des entreprises prospères, nous nous efforçons de concevoir nos produits de manière à pouvoir les distinguer et mieux servir nos clients ; pour ce faire, nous devons être capables d’innover – l’innovation est une fonction du défi et de la pensée non linéaire, qui est à son tour favorisée par des individus qui représentent des perspectives différentes. Pour recruter et retenir des talents divers, nous devons offrir un environnement inclusif – une communauté où les différences sont célébrées et où chacun se sent à sa place. C’est notre aspiration et notre vision pour ABBYY. » 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Responsabilité environnementale et sociale (RSE) 
 
 Chez ABBYY, les initiatives RSE revêtent une importance capitale depuis longtemps. Non seulement nos produits aident des centaines de clients dans le monde entier à gagner en efficacité et à améliorer leurs pratiques de gestion des ressources, mais nous avons également développé nos propres initiatives pour promouvoir la durabilité et la responsabilité sociale. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_checkmark-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Un arbre planté pour chaque affaire conclue 
 
 Pour chaque nouveau contrat conclu avec un client, nous faisons don d’un arbre par l’intermédiaire de One Tree Planted, ce qui nous a permis de planter plus de 2 000 arbres en 2021\. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_people_employee-1-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Congés payés pour une bonne cause 
 
 Chacun dispose de deux jours rémunérés par an pour soutenir des causes qui lui tiennent à cœur. L’année dernière, plus de 40 causes ont ainsi été soutenues. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_mountain-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ##### Sur la voie de la neutralité carbone 
 
 Depuis 2023, nous mesurons l’empreinte carbone de nos déplacements et investissons dans des programmes de compensation. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_heart-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ##### Notre défi estival ABBYY 
 
 Chaque année, nous organisons une compétition sportive internationale, avec des dons à des ONG pour chaque kilomètre parcouru par nos collègues en courant, en pédalant, en marchant ou en nageant. 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ### En savoir plus sur ABBYY 
 
 [Équipe de direction](https://tools.techidaily.com/abbyy/products/)[Éléments-clés sur ABBYY](https://static1.abbyy.com/abbyycommedia/36280/infographic-key-facts-fr.pdf)

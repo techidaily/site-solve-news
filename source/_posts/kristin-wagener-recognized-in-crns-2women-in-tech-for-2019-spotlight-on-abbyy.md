@@ -1,7 +1,7 @@
 ---
 title: "Kristin Wagener Recognized in CRN's 2#Women in Tech for 2019: Spotlight on ABBYY"
-date: 2024-08-21 22:53:33
-updated: 2024-08-22 12:14:55
+date: 2024-08-21T15:26:06.749Z
+updated: 2024-08-22T15:26:06.749Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c967c2e7d28e98120dd95b14e.jpg
@@ -70,3 +70,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

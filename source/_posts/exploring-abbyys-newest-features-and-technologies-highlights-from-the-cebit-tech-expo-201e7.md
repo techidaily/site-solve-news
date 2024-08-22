@@ -1,7 +1,7 @@
 ---
 title: "Exploring ABBYY's Newest Features and Technologies: Highlights From the CeBit Tech Expo 201E7"
-date: 2024-08-21 17:18:29
-updated: 2024-08-22 10:45:48
+date: 2024-08-21T15:26:07.929Z
+updated: 2024-08-22T15:26:07.929Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5cf7e45072025cfbbdb41e62586d386e0a0a7b2115c18b01f985181746d9f291.jpg
@@ -72,3 +72,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

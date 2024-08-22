@@ -1,7 +1,7 @@
 ---
 title: Overcoming Digital Shift Hurdles at ABBYY's 2017 Technology Conference | Expert Analysis on the Blog
-date: 2024-08-20 11:36:52
-updated: 2024-08-22 12:42:17
+date: 2024-08-21T15:26:07.995Z
+updated: 2024-08-22T15:26:07.995Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/deaea135ad5d9b523c81b174542d97bf19684476eed26249d5d0957bb4c9f421.jpg
@@ -31,6 +31,9 @@ New and emerging technologies for Receipt Capture (RC SDK) and Mobile Real-Time 
 
 [Download the #ABBYYSummit16 presentations on SlideShare](http://www.slideshare.net/search/slideshow?searchfrom=header&q=%23ABBYYSummit16).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Coming Up at #ABBYYSummit17
 
 This year’s #ABBYYSummit17 agenda will feature two main keynotes:
@@ -60,10 +63,16 @@ Here is what [Bruce Orcutt, SVP of Product Marketing at ABBYY](https://twitter.c
 
 I’m still inspired after #ABBYYSummit16 in San Diego last year. Unlike some tech industry events that can leave you wanting more substance, our compact format was filled with a variety of presentations, great ideas, exciting solutions, and rare opportunities to learn and interact with some of the leading practitioners in digital transformation today. Response to the event was overwhelming and you could literally feel the growth in both attendance, and event value as 96% of attendees plan on returning this year. We are very excited and look forward to our attendee’s success at #ABBYYSummit17, this October 25th\-27th.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Leading the Way to Digital Transformation
 
 ![FB ABBYY Technology](https://static1.abbyy.com/abbyycommedia/25242/fb-abbyy-technology1-1024x535.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 There couldn’t be a better time of year or place to meet with the best minds from across the world, and plan success in the coming year.
 
 While this compact event format gets a lot of work done, everyone has a fun time while doing it. The atmosphere and community always come together to create a truly memorable event.
@@ -72,6 +81,9 @@ Register before it’s too late at [www.ABBYYTechnologySummit.com](https://abbyy
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Events](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

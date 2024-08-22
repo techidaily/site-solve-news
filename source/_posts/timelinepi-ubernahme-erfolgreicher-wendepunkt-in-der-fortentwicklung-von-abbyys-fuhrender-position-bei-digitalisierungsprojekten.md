@@ -1,7 +1,7 @@
 ---
 title: "TimelinePI-Übernahme: Erfolgreicher Wendepunkt in Der Fortentwicklung Von ABBYYs Führender Position Bei Digitalisierungsprojekten"
-date: 2024-08-19 13:52:22
-updated: 2024-08-22 10:16:22
+date: 2024-08-21T15:26:07.654Z
+updated: 2024-08-22T15:26:07.654Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/83862af6c48eed4f22a649a79deec35e1e15bdc44c6b305417ce32effff185ec.jpg
@@ -80,3 +80,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

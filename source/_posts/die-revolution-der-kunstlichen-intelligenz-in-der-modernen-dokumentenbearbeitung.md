@@ -1,7 +1,7 @@
 ---
 title: Die Revolution Der Künstlichen Intelligenz in Der Modernen Dokumentenbearbeitung
-date: 2024-08-20 23:48:29
-updated: 2024-08-22 12:56:41
+date: 2024-08-21T15:26:08.768Z
+updated: 2024-08-22T15:26:08.768Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a9f362c0c9844398bf0c3137c986e711e55f9d9899cc82e5e90b9af515ed9d20.jpg
@@ -23,14 +23,23 @@ January 18, 2023
 
 Im Zentrum dieses Wandels steht eine Technologie, die wir schon seit Jahrzehnten kennen – die optische Zeichenerkennung (OCR). Einst ein einfaches Werkzeug zur Digitalisierung von Text, spielt OCR heute eine entscheidende Rolle beim Training großer Sprachmodelle (LLM) mit hochwertigen Daten. Diese Entwicklung von einem einfachen Textkonvertierungstool zu einem hochentwickelten Datenlieferanten verdeutlicht die Anpassungsfähigkeit und die anhaltende Relevanz von IDP-Technologien. Die alte IDP ebnet den Weg für eine neue Ära, in der Präzision und Kontext von größter Bedeutung sind.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### Anwendungen und Herausforderungen der realen Welt
 
 Bei der heutigen [OCR](https://tools.techidaily.com/abbyy/products/) geht es nicht nur darum, Texte zu lesen, sondern sie in ihrer Gesamtheit zu verstehen. Unternehmen verlangen nach höherer Genauigkeit und tieferen Dateneinblicken, was fortschrittlichere und differenziertere IDP-Technologien erforderlich macht. Diese Entwicklung ist jedoch nicht ohne Herausforderungen. Das Gleichgewicht zwischen Genauigkeit und kontextuellem Verständnis ist entscheidend. Wie stellen wir sicher, dass die in KI-Systeme eingespeisten Daten nicht nur korrekt, sondern auch kontextbezogen relevant sind?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Die Zukunft der intelligenten Dokumentenverarbeitung (IDP)
 
 Die Zukunft der IDP liegt in ihrer Fähigkeit, sich nicht nur weiterzuentwickeln, sondern die Art und Weise, wie wir über Daten und KI denken, zu revolutionieren. Es geht darum, Systeme zu schaffen, die Dokumente nicht nur verarbeiten, sondern sie auch verstehen und nicht nur Daten, sondern auch Erkenntnisse gewinnen. Diese neue IDP wird der Eckpfeiler in der sich ständig weiterentwickelnden KI-Landschaft sein, eine entscheidende Komponente beim Aufbau intelligenterer, effizienterer und intuitiverer Systeme. 
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Das Innenleben einer modernen IDP
 
 In dieser neuen Ära der IDP ist es wichtig, die technologischen Fortschritte zu verstehen, die diesen Wandel vorantreiben. Der Kern der [modernen intelligenten Dokumentenverarbeitung](https://tools.techidaily.com/abbyy/products/) liegt in der Integration mit fortschrittlichen KI-Techniken, insbesondere im Bereich des maschinellen Lernens und der Verarbeitung natürlicher Sprache.
@@ -47,6 +56,23 @@ Die Integration der Verarbeitung natürlicher Sprache (NLP) bringt IDP noch eine
 
 Das Schöne an modernen IDP-Systemen ist ihre Fähigkeit, ständig zu lernen und sich zu verbessern. Durch die Einbeziehung von Feedback-Schleifen können diese Systeme ihre Algorithmen verfeinern, sich an neue Dokumenttypen anpassen und ihre Genauigkeit im Laufe der Zeit verbessern. Durch diesen kontinuierlichen Lernprozess wird zudem sichergestellt, dass die IDP relevant und effektiv bleibt, auch wenn sich die Arten und Formate der Dokumente weiterentwickeln.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## Die Rolle hochwertiger Daten beim Training großer Sprachmodelle (LLMs)
 
 Wenn man versteht, wie LLMs wie GPT-4, Claude, Llama und andere mit von IDP abgeleiteten Daten trainiert werden, wird die symbiotische Beziehung zwischen diesen Technologien deutlich. Hier finden Sie eine Aufschlüsselung des Prozesses:
@@ -71,6 +97,9 @@ Beim Trainingsprozess wird das LLM großen Datenmengen ausgesetzt, damit es lern
 
 Nach dem Training wird das LLM einer strengen Prüfung und Validierung unterzogen. Dazu gehört die Überprüfung der Fähigkeit, Sprache in verschiedenen Bereichen, Stilen und Formaten zu verstehen und zu erzeugen. Die Rückmeldungen aus dieser Phase fließen in den Trainingskreislauf ein und verfeinern die Fähigkeiten des LLM weiter.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Anbruch einer neuen Ära
 
 Die Aussage „IDP ist tot, es lebe IDP“ ist kein Widerspruch, sondern ein Beweis für die Widerstandsfähigkeit und Weiterentwicklung dieser Technologie. Was wir als IDP kannten, hat sich gewandelt, und an seine Stelle ist ein fortschrittlicherer, integralerer Teil des KI-Ökosystems getreten. Es ist eine aufregende Zeit, Teil dieser Reise zu sein und den Anbruch einer neuen Ära der intelligenten Dokumentenverarbeitung und der künstlichen Intelligenz mitzuerleben. 
@@ -81,6 +110,9 @@ Erfahren Sie, warum ABBYY zum vierten Mal in Folge zum IDP-Marktführer ernannt 
 
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy

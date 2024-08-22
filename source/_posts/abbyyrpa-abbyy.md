@@ -1,7 +1,7 @@
 ---
 title: "ABBYYとRPAのパフォーマンス最適化: 深掘り - ABBYYブログ"
-date: 2024-08-20 18:34:56
-updated: 2024-08-22 10:34:40
+date: 2024-08-21T15:26:07.698Z
+updated: 2024-08-22T15:26:07.698Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d568e250a0c9cf38c4b89f922cd02103ab4f1762aadda7b19c3a1266ed366a54.jpg
@@ -93,3 +93,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->

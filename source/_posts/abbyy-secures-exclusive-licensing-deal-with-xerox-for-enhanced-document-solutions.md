@@ -1,7 +1,7 @@
 ---
 title: ABBYY Secures Exclusive Licensing Deal with Xerox for Enhanced Document Solutions
-date: 2024-08-20 19:43:28
-updated: 2024-08-22 11:43:47
+date: 2024-08-21T15:26:07.315Z
+updated: 2024-08-22T15:26:07.315Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ade52c66f0e56fc9f46bf8a90a52f0a6d57269829cd3f5e819633e97b2be938d.jpg
@@ -58,3 +58,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

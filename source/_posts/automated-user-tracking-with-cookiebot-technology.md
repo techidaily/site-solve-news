@@ -1,7 +1,7 @@
 ---
 title: Automated User Tracking with Cookiebot Technology
-date: 2024-08-21 23:32:39
-updated: 2024-08-22 11:46:49
+date: 2024-08-21T15:26:06.892Z
+updated: 2024-08-22T15:26:06.892Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706dfa4d55a382cb32e354e1f132.jpg
@@ -116,3 +116,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

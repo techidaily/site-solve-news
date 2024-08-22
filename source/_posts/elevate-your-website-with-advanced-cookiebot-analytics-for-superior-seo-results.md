@@ -1,7 +1,7 @@
 ---
 title: Elevate Your Website with Advanced Cookiebot Analytics for Superior SEO Results
-date: 2024-08-21 19:20:59
-updated: 2024-08-22 11:52:23
+date: 2024-08-21T15:26:08.333Z
+updated: 2024-08-22T15:26:08.333Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fdc25fa9e7d76ca87920564362f13d91c2db273783ec5bcb39c2377739cf581a.jpg
@@ -23,6 +23,9 @@ thumbnail: https://thmb.techidaily.com/fdc25fa9e7d76ca87920564362f13d91c2db27378
 
 OCRの検討段階では気づきにくい、OCRによる働き方改革や業務自動化を実現する上で注意すべきポイントについてご紹介いたします。
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## OCR導入に失敗する要因その１：文書レイアウトに起因する問題
 
 OCR導入の失敗には、3つの系統的な要因が見られます。その一つとして挙げられるのは、文書レイアウトに起因する問題です。
@@ -37,12 +40,18 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35675/1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 2つ目は、「ノイズのある文書が読めない」というものです。請求書などの会社発行の書類では、自社情報の付近に押印されているケースがあります。このような押印が会社情報に被ると会社情報を抽出するのが難しくなります。画像処理により押印部分を除去することで改善、解決することができますが、OCR製品によっては画像処理を行えないものがあります。
 
 3つ目は、OCR製品の多くは「異なる種類の文書をひとつのまとまりとして扱えない」というものです。申請業務などでは、申請書の他に免許証やパスポートの写しなど本人確認の書類が付属することがあります。また自動振込の依頼書などその他の書類が添付されることも良くあります。世の中にはフォーマットが別々でも同一処理を行う必要性のある書類群が存在しますが、OCRは一般的にページ単位や書類単位で処理されるため、
 
 繋がりを考慮しない処理しかできないケースがあります。先ほどの例で申しますと、本来であれば異なる種類の申請書に記載のある氏名と本人確認書類の氏名が一致しているか、など書類間で確認すべき事項があっても、繋がりを意識できないOCR製品の場合は目視での確認のみに留まります。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## OCR導入に失敗する要因その2：業務利用に起因する問題
 
 二つ目に挙げられるのは、業務利用を検討する際に発生する問題です。
@@ -57,6 +66,9 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35676/2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 また秘匿性という観点では、OCR処理内容を他の部署に見せたくないなど、部門ごとのセキュリティが求められるケースもあります。この場合はテナント機能により部門ごとに作業領域を区分けできることが重要です。
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35677/3.png)
@@ -65,6 +77,9 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 また、社内の認証手続きに合致しない、社内ネットワーク基準に干渉するためアクセスできない、といったことが無いように、シングルサインオンや多段階認証への対応であるとか様々なシステムとの接続性にも事前に目を向ける必要があります。
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## OCR導入に失敗する要因その3：ワークフローに起因する問題
 
 三つ目に挙げられるのは、求められるフローを実現できない問題です。
@@ -97,6 +112,9 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 [AI OCR](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

@@ -1,7 +1,7 @@
 ---
 title: Abbyy Enhances Enterprise Focus with Revamped Strategy in First Quarter of 2019
-date: 2024-08-20 19:45:24
-updated: 2024-08-22 10:45:33
+date: 2024-08-21T15:26:08.537Z
+updated: 2024-08-22T15:26:08.537Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c40f79ad9e48ab602a74cd56.jpg
@@ -159,3 +159,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->

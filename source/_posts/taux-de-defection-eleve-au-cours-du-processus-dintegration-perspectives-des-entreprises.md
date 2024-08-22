@@ -1,7 +1,7 @@
 ---
 title: Taux De Défection Élevé Au Cours Du Processus D'intégration - Perspectives Des Entreprises
-date: 2024-08-20 17:33:37
-updated: 2024-08-22 11:33:46
+date: 2024-08-21T15:26:08.037Z
+updated: 2024-08-22T15:26:08.037Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c54c6148123e508341809a9f8c11fb6ca2958cb786ab2471b34202053c6a9248.jpg
@@ -33,12 +33,18 @@ Les répercussions d’un onboarding déficient sur les activités des entrepris
 
 ![infographic-onboarding-survey-fr](https://static1.abbyy.com/abbyycommedia/36369/infographic-onboarding-survey-fr.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ### 23% des décideurs informatiques envisagent d’implémenter des technologies de Process Intelligence pour optimiser leur onboarding
 
 Pour optimiser leurs processus d'onboarding, les entreprises doivent s’appuyer sur des technologies qui permettent d'automatiser au maximum leurs opérations afin de les rendre plus efficaces. Elles doivent également pouvoir proposer un accompagnement humain dans la mise en place de ce processus. En combinant ces deux facteurs (technologie et humains), les entreprises offrent à leurs clients une expérience d’utilisation améliorée et gagnent ainsi en résilience. L’étude rapporte qu'aujourd'hui 85% des entreprises ont une stratégie d'onboarding alliant de l’humain et de la technologie. Seules 9% s’appuient à 100% sur le digital, et 4% sur l’humain.
 
 Dans le contexte inflationniste actuel, les organisations mesurent l’importance de l’onboarding. Pour limiter les effets négatifs qui pourraient l’affecter, celles-ci s'appuient sur des technologies de pointe. Les décideurs informatiques français sont 24% à avoir digitalisé la vérification d’identité, 24% utilisent des solutions d’Intelligent Document Processing et 20% des outils de RPA. À l'avenir, ils envisagent d’implémenter encore davantage ces solutions, notamment le Process Intelligence (23%) et la vérification d’identité (19%).
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 40% des entreprises pensent qu’avec un taux d'abandon réduit de 50% elles pourraient augmenter leurs revenus d’au moins 30%
 
 L’étude a permis de montrer que les organisations attendent qu’un meilleur onboarding améliore l’expérience utilisateur (31%), réduise le taux d'abandon (30%), attire de nouveaux clients (27%) et les fidélise (24%). Mais les entreprises ne pensent pas seulement aux bénéfices induits pour leurs clients mais également aux avantages pour leurs collaborateurs. Ainsi, l’amélioration du processus d’onboarding contribue à améliorer l’ensemble des interactions entre les collaborateurs et les clients (25%), et permet de réduire le travail pour les employés (24%).
@@ -53,20 +59,34 @@ _Hervé Laurandin, Directeur France chez ABBYY._
 
 Le nouveau rapport ABBYY State of Intelligent Automation vous donne un aperçu supplémentaire des moteurs et des contraintes de l'onboarding et vous montre comment vous pouvez mieux répondre aux attentes de vos clients. [Téléchargez le rapport détaillé ici](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Methodology
 
 Méthodologie : Cette étude a été menée par Sapio Research en octobre 2022 pour ABBYY auprès de 1 623 décideurs informatiques dans les secteurs des services financiers, de l'assurance, de la supply chain, du transport et de la logistique, des services publics et de la santé au Royaume-Uni, aux États-Unis, en France, en Allemagne et au Japon.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 10 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Contact presse
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 
 _ABBYY_

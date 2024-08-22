@@ -1,7 +1,7 @@
 ---
 title: "Milaha Enhances Invoice Management: ABBYY, FourNxt & Blue Prism Collaborate for Efficiency"
-date: 2024-08-19 10:47:18
-updated: 2024-08-22 12:59:29
+date: 2024-08-21T15:26:08.931Z
+updated: 2024-08-22T15:26:08.931Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fa466aca4e0117af9ede098ff5beff07b4b780680a77e468de6afed425dad313.jpg
@@ -101,6 +101,9 @@ automation, invoice processing errors were eliminated and employee productivity 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

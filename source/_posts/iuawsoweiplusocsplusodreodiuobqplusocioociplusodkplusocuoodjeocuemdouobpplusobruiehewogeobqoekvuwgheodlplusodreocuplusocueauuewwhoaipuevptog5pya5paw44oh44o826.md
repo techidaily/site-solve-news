@@ -1,7 +1,7 @@
 ---
 title: "新型コロナによるビジネス面での脅威と社内プロセス改善戦略: 最新データ分析"
-date: 2024-08-20 15:47:37
-updated: 2024-08-22 10:55:30
+date: 2024-08-21T15:26:08.430Z
+updated: 2024-08-22T15:26:08.430Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33f7a6674447c8f7173ff1c687707de6ab2b192d47bf8afae9f7fe02b3355e59.jpg
@@ -65,6 +65,9 @@ Bruce Orcutt
 
 Vice President of Product Marketing at ABBYY
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

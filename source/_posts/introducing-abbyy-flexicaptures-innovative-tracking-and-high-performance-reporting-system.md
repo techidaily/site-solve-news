@@ -1,7 +1,7 @@
 ---
 title: Introducing ABBYY FlexiCapture's Innovative Tracking and High-Performance Reporting System
-date: 2024-08-21 18:46:46
-updated: 2024-08-22 10:22:33
+date: 2024-08-21T15:26:07.956Z
+updated: 2024-08-22T15:26:07.956Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d2f504c7a28917e2aef95be2fd0b9c5130c134ee668702387fa9476707bc049.jpg
@@ -77,3 +77,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->

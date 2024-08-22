@@ -1,7 +1,7 @@
 ---
 title: "ABBYY's Mobile OCR Enhancement: Seamless Salesforce Connectivity Added to Android Business Card Scanner"
-date: 2024-08-20 10:11:51
-updated: 2024-08-22 11:19:14
+date: 2024-08-21T15:26:08.110Z
+updated: 2024-08-22T15:26:08.110Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d3919e525f4363ae8c9a19d25cba574e77e7ac0583b121f4d771b95a21f909e.jpg
@@ -69,3 +69,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->

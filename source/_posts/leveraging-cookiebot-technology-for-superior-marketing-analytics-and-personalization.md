@@ -1,7 +1,7 @@
 ---
 title: Leveraging Cookiebot Technology for Superior Marketing Analytics & Personalization
-date: 2024-08-20 19:24:40
-updated: 2024-08-22 12:14:12
+date: 2024-08-21T15:26:08.924Z
+updated: 2024-08-22T15:26:08.924Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/376a21d7adf513ad247008e922e6f8963a8f68fa243f110f1e6012bff2388fa5.jpg
@@ -19,18 +19,27 @@ White paper
 
 Robotic Process Automation offers immense promise for better service, increased accuracy, and cost efficiencies. Undoubtedly, these advantages are a driving reason why many organizations are embracing RPA as a key aspect to their digital transformation efforts. But are they achieving the results they’d hoped for?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ### Download it now!
 
 RPA is most successful when the right processes are selected for automation. Process Intelligence allows for an easy and quick visualization of all process variations, the ability to quantify automation ROI, discover process dependencies, automate remediation or alerts with ongoing monitoring, and predict future outcomes- all from your existing data.
 
 Discover how to target processes with the greatest automation potential, while reducing time to value. Download our whitepaper today to learn more!
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY and its technologies.
 
 [Read White paper](https://digital.abbyy.com/hubfs/content/whitepaper-processintelligence-rpa-en.pdf "Read White paper") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

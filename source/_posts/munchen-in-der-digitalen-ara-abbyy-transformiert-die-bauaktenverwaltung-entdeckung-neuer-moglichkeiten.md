@@ -1,7 +1,7 @@
 ---
 title: "München in Der Digitalen Ära: ABBYY Transformiert Die Bauaktenverwaltung – Entdeckung Neuer Möglichkeiten"
-date: 2024-08-20 16:13:15
-updated: 2024-08-22 11:34:37
+date: 2024-08-21T15:26:07.139Z
+updated: 2024-08-22T15:26:07.139Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b79165ba9ef446402f78df39c0ae5aec29c669cdb8669a7402e153be3d685b74.jpg
@@ -78,3 +78,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Empowering Dyslexics: How Texthelp™ & ABBYY Enhance Info Accessibility"
-date: 2024-08-19 10:54:22
-updated: 2024-08-22 12:18:53
+date: 2024-08-21T15:26:08.802Z
+updated: 2024-08-22T15:26:08.802Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/14598feaeb4d0e61d08a761998cd6976c067dba5c944d538d367654e5b9adad2.jpg
@@ -105,6 +105,10 @@ Texthelp continually upgrades and improves their award-winning Read&Write GOLD s
 
 Share  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

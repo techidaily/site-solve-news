@@ -1,7 +1,7 @@
 ---
 title: Improve Your Website's Interactivity Using Cutting-Edge Cookiebot Solutions
-date: 2024-08-21 20:43:39
-updated: 2024-08-22 11:44:48
+date: 2024-08-21T15:26:08.886Z
+updated: 2024-08-22T15:26:08.886Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eba0a5b42c98b9f5083f688e46f3bb9b2578fe7a056aaed74ee36c6a269ef696.jpg
@@ -31,6 +31,9 @@ As a result, the ABBYY FineReader Engine is able to specify text areas and field
 
 The results of this analysis are used for document structure and layout retrieval if documents are processed for further reuse – which means that the documents need be exactly reconstructed. All pictures and diagrams will be preserved in their original form - without recognizing the text inside pictures or logos.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Manual blocks specification for field-level recognition
 
 The text recognition areas can be set up manually. In this case, the relevant recognition field is directly defined and the automated document analysis is not necessary. During the later recognition step, the recognizer receives information about the coordinates and properties of the requested fields and applies OCR only to the specified zone.

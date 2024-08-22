@@ -1,7 +1,7 @@
 ---
 title: "「生命保険業務を最大限活用:ABBYフレックスキャプチャー®によるオペレーションのデジタル変革」"
-date: 2024-08-20 12:49:40
-updated: 2024-08-22 11:54:18
+date: 2024-08-21T15:26:08.526Z
+updated: 2024-08-22T15:26:08.526Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9c252b23b1e3ad8357c15bea477480a8c23a36edb5cd9b4be147d76d8870fe38.jpg
@@ -126,6 +126,10 @@ Insurance | Accounts Payable Automation
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

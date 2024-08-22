@@ -1,7 +1,7 @@
 ---
 title: ABBYY and Blue Prism Unite to Deliver Revolutionary Automation Solutions
-date: 2024-08-20 15:21:32
-updated: 2024-08-22 12:47:21
+date: 2024-08-21T15:26:07.218Z
+updated: 2024-08-22T15:26:07.218Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da4dedfe1c7e2e3409bef7181.jpg
@@ -64,3 +64,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

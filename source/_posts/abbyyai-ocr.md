@@ -1,7 +1,7 @@
 ---
 title: "第一生命保険株式会社がABBYY製品とAI-OCR技術で事務作業自動化に成功:重要ニュース"
-date: 2024-08-19 21:38:33
-updated: 2024-08-22 12:44:21
+date: 2024-08-21T15:26:07.319Z
+updated: 2024-08-22T15:26:07.319Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5102f68d4f6f5865eb613c39e1e5be805ea96bcf031e721bf44a46da711c7234.jpg
@@ -52,3 +52,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

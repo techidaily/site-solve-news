@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Weronika Niemczyk to Chief People Office Role - Behind-the-Scenes Insight From Official Newsroom
-date: 2024-08-21 20:53:52
-updated: 2024-08-22 10:40:33
+date: 2024-08-21T15:26:06.835Z
+updated: 2024-08-22T15:26:06.835Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/151e2edee1a0284cef5f2216fc95a6d76e6031c7de10b21fb5cd31a56d669f73.jpg
@@ -57,3 +57,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing the AP Process: Enhancing Efficiency Through AI - Insights From ABBYY"
-date: 2024-08-21 23:27:35
-updated: 2024-08-22 11:44:28
+date: 2024-08-21T15:26:07.150Z
+updated: 2024-08-22T15:26:07.150Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c1db4ec27c5136dcd8d29377fc669f9488ff5fcb91d758bff8fe15d9459484d0.jpg
@@ -33,10 +33,16 @@ Eliminating paper is the first step towards the digital transformation of AP. Ma
 
 The next generation of machine learning in AP includes the intelligent extraction of line and field data that incorporates the understanding of the overall structure of an invoice. Machine learning technology allows the system to recognize patterns, such as when a certain general ledger code is applied to a certain invoice; and learn overall structure of an invoice in order to extract all the meaningful data automatically. The system will learn these patterns and will suggest codes to the users coding them or find all the totals, amounts, and details contained within the invoice. AI recognizes the result and knows how to process, validate and recommend this data. This will reduce the amount of time AP spends on keying and correcting data.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. Lean IT support
 
 A large IT staff that can code and implement time-consuming algorithms and workflows is not a luxury that most organizations can afford. This is where robotic process automation and AI expedite the process by enabling AP operators to train systems with user-friendly interfaces. Training allows the operator to act as a facilitator of intelligence back into the application, thus eliminating the need for IT resources.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Smarter Decisions
 
 AI’s biggest attraction is its ability to provide more automated intelligence of accounts payable. By integrating advanced invoice automation to eliminate manual processing, and machine learning technology to learn and replicate what accounting staff are doing as part of their normal routine, AP automation systems will deliver better insight into the status of AP.
@@ -51,6 +57,9 @@ Integrating AI within accounts payable (or in any part of the enterprise) is pos
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -59,6 +68,9 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Präsentiert Intelligente, Echtzeitfähige Lösungen Auf Der MWC 2019
-date: 2024-08-20 21:25:57
-updated: 2024-08-22 11:34:54
+date: 2024-08-21T15:26:08.548Z
+updated: 2024-08-22T15:26:08.548Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/965071db1f866296dbd6b7c6cdfb4395621995dd58483ee49e8397ad83cab217.jpg
@@ -81,3 +81,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->

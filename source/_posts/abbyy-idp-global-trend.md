@@ -1,7 +1,7 @@
 ---
 title: ABBYY IDP Global Trend 分析と成功事例について
-date: 2024-08-20 10:25:38
-updated: 2024-08-22 12:49:54
+date: 2024-08-21T15:26:08.542Z
+updated: 2024-08-22T15:26:08.542Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e300204a9c5c4ef99d0dbdbfe019e1c08c97d2c1f2aff2ef7a7d48de12972255.jpg
@@ -61,6 +61,9 @@ ABBYY IDPの導入とパーソナライズに関する詳細については、[w
 
 ABBYYは、貴社の情報を有効に運用するお手伝いをします。 当社のソリューションは、あらゆる文書、あらゆるフォーマット、あらゆる言語、あらゆる時間のデータを、インテリジェントな実用的成果へと変換します。 当社は、世界10,000社以上の企業をサポートし、その中にはフォーチュン500に名を連ねる企業も多数含まれており、最も重要な分野で当社との提携による恩恵を得ることができます。 ABBYYは、米国に本社を置き、世界14カ国にオフィスを構えるグローバル企業です。 詳細については、[www.abbyy.com/ja/company](https://tools.techidaily.com/abbyy/products/)をご参照ください。 [LinkedIn](https://www.linkedin.com/company/abbyy)、[Twitter](https://twitter.com/ABBYY%5FSoftware)、[Facebook](https://www.facebook.com/ABBYYsoft)でのフォローもお待ちしております。
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 

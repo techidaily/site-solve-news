@@ -1,7 +1,7 @@
 ---
 title: Harnessing the Power of Cookiebot for Advanced Audience Engagement and Retargeting
-date: 2024-08-20 21:30:28
-updated: 2024-08-22 10:21:50
+date: 2024-08-21T15:26:06.725Z
+updated: 2024-08-22T15:26:06.725Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5792db82388ad0c79872b3d3.jpg
@@ -19,6 +19,9 @@ Whitepaper
 
 Erfahren Sie, wie Sie Geschäfts­prozess­verbesserungen erzielen, indem Sie Ihre Lösungen auf dem Feld der Robotic Process Automation (RPA) um Process Intelligence ergänzen.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### Jetzt herunterladen!
 
 In diesem Whitepaper erfahren Sie Folgendes:
@@ -31,14 +34,24 @@ Steigern Sie Ihren Process IQ mit umsetzbaren Erkenntnissen
 
 ABBYY Timeline hilft Unternehmen, den derzeitigen Zustand ihrer Prozesse zu verstehen, um ein vollständigeres Bild zu erhalten und die Ausführung von End-to-End-Prozessen im zeitlichen Kontext und nicht als Momentaufnahme anzuzeigen.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Lesen Sie unser Whitepaper, um mehr über Anwendungsfälle und die spezifischen und konkreten Vorteile der Process Intelligence-Technologie zu erfahren, die sich dann bieten, wenn sie zusammen mit RPA-Anwendungen eingesetzt wird.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY.
 
 [Whitepaper lesen](https://digital.abbyy.com/hubfs/content/whitepaper-accelerating-rpa-with-process-intelligence-de.pdf "Whitepaper lesen") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

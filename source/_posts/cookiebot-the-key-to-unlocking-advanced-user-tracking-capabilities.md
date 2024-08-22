@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: The Key to Unlocking Advanced User Tracking Capabilities"
-date: 2024-08-21 10:34:47
-updated: 2024-08-22 12:18:37
+date: 2024-08-21T15:26:08.276Z
+updated: 2024-08-22T15:26:08.276Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fa0f0d9aa480a84d4958b92625d7efd743147dd9e7afea427f137746eefc2011.png
@@ -205,3 +205,7 @@ sub-processors.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Leveraging AI for Enhanced ROI: Insights From ABBYY's Innovative UK Partner Summit"
-date: 2024-08-19 15:29:23
-updated: 2024-08-22 10:16:22
+date: 2024-08-21T15:26:07.595Z
+updated: 2024-08-22T15:26:07.595Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3a0ff2475a3d988ca582620a3d23548d82c16dbdfb31f6e8194792291b9fef05.jpg
@@ -137,3 +137,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

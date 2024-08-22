@@ -1,7 +1,7 @@
 ---
 title: Utilizing Cookiebot Technology for Enhanced Online Analytics
-date: 2024-08-20 18:31:51
-updated: 2024-08-22 11:34:21
+date: 2024-08-21T15:26:08.519Z
+updated: 2024-08-22T15:26:08.519Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/afda68c97ad8ab431f217d1a649d9d5c1081b7b5e12422de4ab2672dba23567f.jpg
@@ -19,16 +19,25 @@ Whitepaper
 
 More and more organizations are using hyperautomation to quickly identify, verify, and automate as many processes as possible. In this context, they are adopting intelligent document processing as a key component of process automation. Then they are integrating other technologies like computer vision and large language models to achieve the highest level of touchless automation. 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Download it now!
 
 This white paper uses an ABBY Vantage use case to demonstrate how these technologies can work together in a practical application, insurance claims automation. It provides a full 12-step description of activities, detailing which technologies are used, and how. It also includes a demo of the claims automation process, from both the user side and the Vantage side. Download it today to see hyperautomation in action! 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read whitepaper](https://global.abbyy.com/hubfs/documents/content/whitepaper-intelligent-document-processing-vantage-use-case-claims-en.pdf  "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Unveils New Features in ABBYY FlexiCapture Version 12.2
-date: 2024-08-20 15:30:18
-updated: 2024-08-22 12:10:53
+date: 2024-08-21T15:26:08.102Z
+updated: 2024-08-22T15:26:08.102Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ed7df24877c809d3df195ee4e441348959e5b212ad2e7ace317f9e06a46361d5.jpg
@@ -72,3 +72,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

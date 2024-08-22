@@ -1,7 +1,7 @@
 ---
 title: "Quick Financial Support for Enterprises Amidst the Pandemic: The Role of Serimag, Banks, and ABBYY's Cutting-Edge Technology"
-date: 2024-08-19 15:36:51
-updated: 2024-08-22 11:26:42
+date: 2024-08-21T15:26:06.772Z
+updated: 2024-08-22T15:26:06.772Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/34105a367409817e108368ea9b44a6be3f4efc35b42dfda4969266c7308e348b.jpg
@@ -85,6 +85,9 @@ Serimag integrated ABBYY as core technology into their intelligent document proc
 
 [Read the document](https://static1.abbyy.com/abbyycommedia/36491/customerstory-intelligent-document-processing-financial-services-serimag-en.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

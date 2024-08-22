@@ -1,7 +1,7 @@
 ---
 title: Boost Your Digital Presence with Cookiebot Technology
-date: 2024-08-19 15:32:23
-updated: 2024-08-22 10:34:21
+date: 2024-08-21T15:26:07.748Z
+updated: 2024-08-22T15:26:07.748Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c6f10629601f5b476cf7e0e1354be1f20022809935827a3c46079f0bf9d4fd5b.jpg
@@ -96,6 +96,18 @@ Significantly reduced invoice processing errors and improved efficiency in accou
 
 [Read the document](https://static1.abbyy.com/abbyycommedia/36204/craig-international-shared-services-case-study-en.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

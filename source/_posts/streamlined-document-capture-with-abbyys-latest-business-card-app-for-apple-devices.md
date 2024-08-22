@@ -1,7 +1,7 @@
 ---
 title: Streamlined Document Capture with ABBYY's Latest Business Card App for Apple Devices
-date: 2024-08-20 10:49:36
-updated: 2024-08-22 11:32:12
+date: 2024-08-21T15:26:07.159Z
+updated: 2024-08-22T15:26:07.159Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e80f8e773e8554c0c3bc3af8f08cf584d0a96cf13fd55f62c95158efb815f99f.jpg
@@ -61,3 +61,8 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->

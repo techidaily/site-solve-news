@@ -1,7 +1,7 @@
 ---
 title: "CEO Ulf Persson's Address: ABBYY Group's Strategic Response to the Ongoing COVID-19 Pandemic"
-date: 2024-08-21 20:19:27
-updated: 2024-08-22 12:17:47
+date: 2024-08-21T15:26:08.645Z
+updated: 2024-08-22T15:26:08.645Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
@@ -46,3 +46,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->

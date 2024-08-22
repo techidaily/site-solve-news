@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Cloud Services Agreement: Comprehensive TOS & Data Protection Compliance Including GDPR Provisions"
-date: 2024-08-21 23:46:11
-updated: 2024-08-22 12:49:33
+date: 2024-08-21T15:26:07.309Z
+updated: 2024-08-22T15:26:07.309Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b2195440e349b5f0884d1401c71f047053f6f52811a1360983fce9511380f91.jpg
@@ -1120,6 +1120,9 @@ c. A data subject may also bring legal proceedings against the data exporter and
 
 d. The Parties agree to submit themselves to the jurisdiction of such courts. 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### APPENDIX
 
 **EXHIBIT I.A - LIST OF PARTIES**

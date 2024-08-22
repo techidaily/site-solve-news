@@ -1,7 +1,7 @@
 ---
 title: ABBYY Neues Logo - Visionärer Brandingansatz Für Den Digitalen Wandel Durch Menschzentrierte Designphilosophie
-date: 2024-08-20 23:34:21
-updated: 2024-08-22 12:10:44
+date: 2024-08-21T15:26:07.693Z
+updated: 2024-08-22T15:26:07.693Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1a6a2f19734cf5d213e7a224.jpg
@@ -58,3 +58,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->

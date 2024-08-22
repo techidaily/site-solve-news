@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Enabled Personalization and Analytics Powering Websites
-date: 2024-08-20 13:34:59
-updated: 2024-08-22 10:20:11
+date: 2024-08-21T15:26:08.720Z
+updated: 2024-08-22T15:26:08.720Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534149e5bce6ee9984dd257b98.jpg
@@ -29,10 +29,16 @@ In the beginning of 2020, the COVID-19 pandemic reached the world quickly and ca
 
 As economies gradually re-open during the post-pandemic phase, the need to conduct postponed IT projects will lead to new IT spending—but in a changed world. In the ‘new normal’ post-pandemic times, companies will re-evaluate their IT plans, and very likely pursue cloud IT strategies.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why will enterprises move their IT into the cloud faster than ever?
 
 ![cloud-based IT systems](https://static1.abbyy.com/abbyycommedia/29598/cloud-it-spending-forecast-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 The following trends will underpin the pursuits of enterprises to move their IT infrastructure into the cloud:
 
 * Enterprises that were concentrating on ways to enable employees with home office workspaces and remote access to enterprise IT resources found an excellent solution in cloud IT systems, with their natural remote access architecture. Even once the danger of COVID-19 ceases, many companies will continue to leverage remote working environments for their staff, benefiting from the reduced cost for real estate and the HR ability to attract new talents from distant areas.
@@ -41,14 +47,23 @@ The following trends will underpin the pursuits of enterprises to move their IT 
 
 ![moving IT into the cloud](https://static1.abbyy.com/abbyycommedia/29599/cloud-it-spending-forecast-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 As enterprise customers will be increasing their spending for cloud-based IT systems, IT providers must get ready with offerings that meet the demand of their clients in the ‘new normal’ post-pandemic world: the need for flexible and scalable cloud-based applications that can be accessed by users 24/7 from wherever people need to access them—from the standard office, from the home office, or from the beach.
 
 [Cloud](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
 ![Eva Weber ABBYY](https://static2.abbyy.com/abbyycommedia/25705/evaweber-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 Eva Weber
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

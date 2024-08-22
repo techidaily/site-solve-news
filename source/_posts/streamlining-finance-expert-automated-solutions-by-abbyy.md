@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Finance: Expert Automated Solutions by ABBYY"
-date: 2024-08-19 20:42:58
-updated: 2024-08-22 12:41:14
+date: 2024-08-21T15:26:07.168Z
+updated: 2024-08-22T15:26:07.168Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/99d21901c046ee167dc651651f4c0a4a5fcaa0180bc67e42c2265df29bcc90c2.png
@@ -21,18 +21,30 @@ English
 
 ![Cheryl Chiodi](https://static4.abbyy.com/abbyycommedia/32900/75-cherylchiodi-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Cheryl Chiodi
 
 Solution Marketing Manager, Financial Services, **ABBYY**
 
 ![88 Aurelielhostis 198X198](https://static4.abbyy.com/abbyycommedia/25489/forrester-logo-forcards.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![88 Aurelielhostis 198X198](https://static4.abbyy.com/abbyycommedia/33886/88-aurelielhostis-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ### Aurelie L'Hostis
 
 Senior Analyst, **Forrester**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### Overview
 
 The challenges of the recent global crisis have exposed the fact that the events and trends in financial services move fast. Financial institutions need the velocity necessary to keep up and meet the needs of their customers by creating the differentiated experiences they demand. In a world where things can change with little or no warning, speed matters.
@@ -48,11 +60,17 @@ In this webinar, ABBYY's financial services expert Cheryl Chiodi and guest speak
 
 ### Watch now
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar.
 
 ### Check out some of the best moments and watch the full recording below.

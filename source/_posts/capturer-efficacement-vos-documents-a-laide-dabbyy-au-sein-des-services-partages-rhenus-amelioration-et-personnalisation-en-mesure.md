@@ -1,7 +1,7 @@
 ---
 title: Capturer Efficacement Vos Documents À L'aide D'ABBYY Au Sein Des Services Partagés Rhenus - Amélioration Et Personnalisation en Mesure
-date: 2024-08-19 22:56:25
-updated: 2024-08-22 10:47:51
+date: 2024-08-21T15:26:07.765Z
+updated: 2024-08-22T15:26:07.765Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7198dc888f65174fbf2046c2c24c70817b0458c73734644af430af59b81e9b9d.jpg
@@ -104,6 +104,9 @@ Partager  True ?  : ""
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

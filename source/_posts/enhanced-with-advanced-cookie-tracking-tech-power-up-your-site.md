@@ -1,7 +1,7 @@
 ---
 title: "Enhanced with Advanced Cookie-Tracking Tech: Power Up Your Site!"
-date: 2024-08-19 13:11:29
-updated: 2024-08-22 10:38:32
+date: 2024-08-21T15:26:07.048Z
+updated: 2024-08-22T15:26:07.048Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11ffbe838822c268118ff95e70.jpg
@@ -54,12 +54,26 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29121/table-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ### ページ間で表の1行・1レコード・1パターンのデータがまたがってしまっている帳票
 
 以下のような、ページまたぎの行、レコードでも問題なく認識して、OCRできます。
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29122/table-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ### 罫線が無い、行や列が分かりにくい帳票
 
 明細部に罫線が無くても、行や繰り返しの法則性・パターンが分かる帳票ならば…
@@ -70,6 +84,9 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29126/table-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 下記の例のように、罫線が全くなくても、表の部分を下図の線で区切ったように認識し、OCRする事が可能です。もちろん複数ページの読み取りでも、途中に異なるフォーマットの帳票があっても大丈夫です。
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29128/table-6.png)
@@ -80,10 +97,16 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29129/table-7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 右から左へ 列を行のようなパターンとみなして読むOCRも可能です。
 
 また、このような横方向でも、複雑な列(行) やパターンの繰り返しも読み取ることができます。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### あらゆる種類、どんなレイアウト、どんな複雑な帳票が複数ページで構成されていても大丈夫
 
 どんな複雑な帳票でも、人間が読めるのなら、繰り返されるパターンや法則性があります。
@@ -100,12 +123,19 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29133/table-10.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 その他にも FlexiCapture だけで、全ての電子自動処理が完結できる程の多くの機能を備えています。それは次回以降ご紹介いたします。
 
 あらゆる種類、どんなレイアウト、複数ページで成る帳票を扱うことができます。
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29135/table-11.png)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 今回ご紹介しました、帳票処理ソリューションABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせは[こちら](https://tools.techidaily.com/abbyy/products/)から承ります。
 
 [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [コンテンツの理解](https://tools.techidaily.com/abbyy/products/) [AI（人工知能）](https://tools.techidaily.com/abbyy/products/) 

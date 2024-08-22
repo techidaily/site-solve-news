@@ -1,7 +1,7 @@
 ---
 title: Boost Your Automation Excellence with Blue Prism's Award-Winning Process Analytics
-date: 2024-08-19 10:55:36
-updated: 2024-08-22 11:52:37
+date: 2024-08-21T15:26:06.904Z
+updated: 2024-08-22T15:26:06.904Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8e7429f26cf226f9f9f144f8b464e629b87419e8b1e2596cca527bf6aeb943f1.jpg
@@ -47,8 +47,14 @@ Das neue Angebot trägt wesentlich zum Erfolg eines jeden Unternehmens, für das
 
 [Erfahren Sie mehr](https://www.blueprism.com/products/blue-prism-process-intelligence/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-product-2021-q4-10-1-blue-prism-process-intelligence) über Blue Prism Process Intelligence Powered by ABBYY Timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Hinweise an die Redaktion: 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Über Blue Prism
 
 Blue Prism ist der weltweit führende Anbieter intelligenter Automatisierung und robotergesteuerter Prozessautomatisierung (RPA) für Unternehmen und verändert die Art und Weise, wie Arbeiten ausgeführt werden. Wir haben 2.000 Kunden in über 170 Ländern und 70 Branchen – 30 % der Unternehmen gehören zu denGlobal 2000 (gemäß Forbes), die mit neuen Arbeitsweisen ihre Effizienz steigern und Millionen ihrer Arbeitsstunden anderweitig nutzbar machen. Unsere Digital Workforce ist intelligent, sicher, skalierbar und für alle zugänglich. 
@@ -57,16 +63,25 @@ Das schafft Freiräume, um Arbeit wirklich neu zu gestalten. Weitere Information
 
 © 2021 Blue Prism Limited. „Blue Prism“, das „Blue Prism“-Logo und das Prism Device sind Marken bzw. eingetragene Marken von Blue Prism Limited und seiner Vertragspartner. Alle Rechte vorbehalten. 
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Geschäftsprozesse und Informationen, die ein Unternehmen antreiben, zu analysieren und im Detail zu verstehen. ABBYY-Technologien werden von mehr als 5.000 Unternehmen weltweit eingesetzt, darunter viele Fortune-500-Unternehmen. Die als führend ausgezeichneten Lösungen im Bereich [Intelligent Document Processing (IDP)](https://tools.techidaily.com/abbyy/products/) und [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) steigern Effizienz, Rentabilität und Wettbewerbsfähigkeit eines Unternehmens und verbessern das Kundenerlebnis nachhaltig. ABBYY ist ein globales Unternehmen mit Niederlassungen in 14 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de>.
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Medienansprechpartner:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 #### Paul Taylor 
 
 **Blue Prism**
@@ -75,6 +90,9 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 **ABBYY**

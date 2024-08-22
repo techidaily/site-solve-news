@@ -1,7 +1,7 @@
 ---
 title: Automate Your Website with Efficient Cookiebot Technology
-date: 2024-08-19 13:24:42
-updated: 2024-08-22 11:28:17
+date: 2024-08-21T15:26:06.876Z
+updated: 2024-08-22T15:26:06.876Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c9771ef48189c5657c46cc55dbf30e5b22c5c13c4b41b02a192204985e15f302.jpg
@@ -19,6 +19,9 @@ Brochure
 
 Le traitement des pièces justificatives ne devrait pas gâcher le temps et les ressources précieuses de la comptabilité. Lorsque les reçus pour les notes de frais des salariés sont traités à la main, cela se traduit souvent par des erreurs telles que des paiements en doublon, ce qui ralentit les audits et expose votre entreprise à de potentielles fraudes. La solution ABBYY de gestion des dépenses rationalise et améliore les processus de remboursement des dépenses. Il s’agit d’une solution prête à l’emploi pour traiter automatiquement les reçus et en extraire les précieuses données dont vous avez besoin pour une gestion exacte des dépenses.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Télécharger maintenant!
 
 Téléchargez cette brochure pour savoir comment la solution ABBYY de traitement intelligent des documents vous aide à capturer, suivre et gérer les dépenses en toute simplicité :
@@ -29,12 +32,18 @@ Téléchargez cette brochure pour savoir comment la solution ABBYY de traitement
 * Comptabilité fluide & intégration à l’ERP
 * Maîtrise totale du budget dépensé
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Merci de votre intérêt pour ABBYY.
 
 [Lire la brochure](https://digital.abbyy.com/hubfs/documents/content/brochure-ap-expense-management-fr.pdf "Lire la brochure") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

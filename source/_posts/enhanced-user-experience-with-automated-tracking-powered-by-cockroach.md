@@ -1,7 +1,7 @@
 ---
 title: "Enhanced User Experience with Automated Tracking: Powered by Cockroach"
-date: 2024-08-19 10:56:47
-updated: 2024-08-22 11:38:33
+date: 2024-08-21T15:26:08.375Z
+updated: 2024-08-22T15:26:08.375Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c1276bf377a783b41e216419.jpeg
@@ -60,10 +60,16 @@ Find out how it can improve customer journey visibility, reduce time and manual 
 
 Visit the FlexiCapture web page for more information about the [Timeline for FlexiCapture](https://tools.techidaily.com/abbyy/products/) solution.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **ABBYY partner ecosystem promotes hyperautomation, value for customers**
 
 ABBYY will have several technology partners share how they integrate ABBYY Digital Intelligence to achieve intelligent automation leveraging multiple tools ranging from machine learning, analytics, process mining, business intelligence, and RPA. The integrated approach promotes what Gartner refers to as hyperautomation using best-in-breed technology. Partners presenting during ABBYY Reimagine sessions include Gold sponsors EXL, Blue Prism, and Alteryx, as well as other technology partners PwC and Capitalize Analytics.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **ABBYY partners with Capitalize Analytics to deliver end-to-end process insight to achieve operational excellence**
 
 ABBYY has partnered with Capitalize Analytics, a business intelligence and consulting firm that specializes in leveraging data automation and monitorization tools to provide end-to-end process understanding of organizations’ operations. Capitalize Analytics provides consulting services to companies that leverage various platforms such as ABBYY Timeline, Tableau, Power BI, and UiPath and is an Alteryx North American Partner of the Year.
@@ -72,6 +78,9 @@ Capitalize leverages industry-leading solutions to enable companies to make bett
 
 ![digital transformation technology](https://static1.abbyy.com/abbyycommedia/32426/b-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 During the ABBYY Reimagine Reveal session, Capitalize demonstrates using the Alteryx platform to analyze and monitor data from multiple sources. It starts with data incoming from unstructured invoices via ABBYY Vantage, customer information sourced from Salesforce, and purchase order information pulled from Microsoft Dynamics and shows how the various data can be fed into ABBYY Timeline for process understanding and also into Excel, Power BI, and Tableau Dashboard for additional analytics information.
 
 A more detailed technical demonstration will be shown during a session with ABBYY, Alteryx, and Capitalize during Day 2\. Information about combining Process Intelligence with analytics can be found at [ABBYY+Alteryx](https://tools.techidaily.com/abbyy/products/) solution page.
@@ -84,6 +93,9 @@ If you are unable to join us live, ABBYY Reimagine sessions will be available on
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -92,6 +104,11 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

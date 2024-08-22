@@ -1,7 +1,7 @@
 ---
 title: "API Agreement Guide: Understanding ABBYY FlexiCapture Services in Europe"
-date: 2024-08-21 11:23:11
-updated: 2024-08-22 12:24:32
+date: 2024-08-21T15:26:08.159Z
+updated: 2024-08-22T15:26:08.159Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/da7734e84e246f918bdf5e60b91499ba1ad1512932f71cc8b0057c6b83a1e49f.jpg
@@ -325,6 +325,9 @@ You are required to take all reasonable measures to avoid and reduce damages.
 
 13.14\. **Applicable Law and Jurisdiction**. This Agreement shall be governed by and construed in accordance with the laws of the Federal Republic of Germany excluding the Convention for the International Sale of Goods. The parties agree that they shall submit any and all disputes, controversies or differences that in the opinion of a party cannot be settled amicably, to the court of Munich, Germany. This clause shall in no event be construed so as to deprive a party to institute interim injunction proceedings at a different court of another country.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Appendix A
 
 Data Protection Addendum

@@ -1,7 +1,7 @@
 ---
 title: "Introducing the Passionate Musicians of ABBYY: More Than Just a Team"
-date: 2024-08-21 22:19:51
-updated: 2024-08-22 10:21:49
+date: 2024-08-21T15:26:07.098Z
+updated: 2024-08-22T15:26:07.098Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93248db2ddf9a669b098df892.jpg
@@ -154,3 +154,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Site's Performance with Expert Automation"
-date: 2024-08-19 19:13:43
-updated: 2024-08-22 12:51:45
+date: 2024-08-21T15:26:06.973Z
+updated: 2024-08-22T15:26:06.973Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5279af7c39b88fd4998fb7b9c2ae678e663ed77151996f75dc42960cd65686db.jpg
@@ -53,14 +53,23 @@ Pour comprendre ce qu’est l’IDP et comment il profite aux entreprises, il es
     
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics-fr.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Comment fonctionne le traitement intelligent des documents ? 
 
 L’IDP utilise des techniques de traitement du langage naturel (NLP) et de contextualisation des données dans le texte environnant pour l’extraction d’entités ; cela déterminera, avec un grand degré de précision, à quelles entités il fait référence. Par exemple, est-ce que le mot « jaguar » fait référence à un gros chat ou à une voiture ? Ou bien le mot « Rose » fait-il référence à une personne ou à une fleur ? Grâce au NLP, un niveau sans précédent de reconnaissance des données non structurées est atteint et les données sont extraites ; cela fonctionne comme un cerveau humain, s’adaptant rapidement à l’évolution des données entrantes et générant les meilleurs résultats possibles.
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/idp-scheme-848x444-b-fr.png?h=444&w=848)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 Grâce au [FastML](https://tools.techidaily.com/abbyy/products/), nouveau mécanisme d’apprentissage côté client, des méthodes visuelles et textuelles d’extraction sont appliquées, ce qui permet d’atteindre une plus grande précision dans l’extraction des données. Les entreprises qui cherchent à garder un avantage concurrentiel peuvent le faire en laissant de côté la charge de travail fastidieuse, transactionnelle et avec beaucoup de contenu, au profit du traitement intelligent des documents et de solutions intelligentes d’automatisation. Cela dégage du temps pour les salariés qui peuvent alors se consacrer à des tâches plus gratifiantes et offrir une meilleure expérience client.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Quels sont les avantages du traitement intelligent des documents ? 
 
 Dans tous les secteurs d’activité, les entreprises subissent la pression de devoir faire plus – et plus vite – avec moins de ressources qualifiées. En même temps, davantage d’entreprises se concentrent sur l’amélioration de l’expérience pour les clients et pour les employés et y voient la clef de l’amélioration de leur chiffre d’affaires, de leurs marges et de la fidélisation.[Le traitement intelligent des documents (IDP)](https://www.abbyy.com/fr/vantage/?itm%5Fsource=coprblog-fr "Intelligent document processing (IDP)") présente des avantages importants sur les deux aspects. En utilisant des compétences de document qui s’approchent de la façon dont les humains comprennent et gèrent les contenus, l’IDP offre les avantages suivants :
@@ -72,6 +81,9 @@ Dans tous les secteurs d’activité, les entreprises subissent la pression de d
 
 **[Related content: Contenu associé : Automatisation intelligente – rapport sur les leviers et les points faibles de l’onboarding client](https://tools.techidaily.com/abbyy/products/)**
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Comment l’association du process mining & de l’IDP permet de dégager plus de valeur ? 
 
 Le contenu n’existe pas au milieu du vide : il fait partie intégrante des processus métier qui alimentent le travail quotidien des entreprises, tous secteurs d’activité confondus. Si l’on considère plus largement l’importance du contenu pour la prise de décision et l’expérience client, se contenter d’incorporer le traitement intelligent des documents aux processus existants produira, au mieux, des résultats limités, principalement parce que ces processus ne seront pas faits pour cela. Aussi, pour que l’IDP soit une réussite, il faut l’appliquer à des processus numériques optimisés, et c’est là que le [process mining](https://tools.techidaily.com/abbyy/products/) entre en jeu.
@@ -128,6 +140,18 @@ Avec tellement de bruit autour de l’intelligence artificielle et un paysage te
 * **3\. Cherchez une solution répondant à vos exigences.**  
  Une fois que vous aurez défini vos besoins spécifiques, il sera plus facile de trouver une solution répondant à vos contraintes. Par exemple, il se peut que vous ayez des données dans différentes langues, ayant besoin d’être traduites avant d’être analysées ou transmises à un autre système. Il peut y avoir des consignes strictes pour le respect de la vie privée dans l’utilisation des données ; dans ce cas, les fonctionnalités d’authentification et de validation de votre plateforme d’IDP seront une priorité. La classification et l’intégration des données sont aussi un élément important pour le transfert automatique vers les workflows existants. L’IDP peut classer les documents en catégories prédéfinies pour organiser et prioriser la charge de travail. Par exemple, il peut trier les demandes par date ou classer les emails dans différents dossiers en fonction de leur contenu.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## L’avenir du traitement des documents 
 
 Le traitement intelligent des documents offre aux entreprises un grand nombre d’avantages financiers — s’il est mis en place de façon stratégique, en tant que contributeur essentiel à l’expérience client, et si les processus sont construits en fonction de lui. En commençant par exploiter au mieux le process mining et en posant des bases solides pour sa mise en œuvre, les entreprises peuvent engranger tous les bénéfices de l’IDP, y compris des coûts réduits, une amélioration de l’efficacité, de la conformité réglementaire, ainsi que de l’expérience client et salarié. 
@@ -178,6 +202,9 @@ _Note éditoriale : le post de ce blog a été initialement publié le 8 décemb
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Directeur Senior de la stratégie IA 

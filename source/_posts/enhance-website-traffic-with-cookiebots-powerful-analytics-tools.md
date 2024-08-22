@@ -1,7 +1,7 @@
 ---
 title: Enhance Website Traffic with Cookiebot's Powerful Analytics Tools
-date: 2024-08-20 17:43:54
-updated: 2024-08-22 12:33:15
+date: 2024-08-21T15:26:07.536Z
+updated: 2024-08-22T15:26:07.536Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f596754b304b70bbb49c94051d7f942eb048636fc50a63ae9e11d57d284605d.jpg
@@ -38,6 +38,10 @@ It helped finance to foresee monthly expenses, improved cash flow, and streamlin
 
 As an IBM Consultant, Shanx has delivered change programs with leading companies such as Toyota, Proctor and Gamble, and Intel. He believes automation is not just about use cases but is rather a mindset, starting with basic things like considering how the innovation team will operate, whether to use project management tools, or how to track your own progress and report to leadership. He says you can’t digitize the life out of a client-facing process when your own operating model is pathetic. After all, the ultimate goal of any business is to serve its customers. Therefore, it's crucial to focus first on client-facing experiences and work backwards from there. If your internal operations can’t support the ideal customer outcome, you must address that underlying issue.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ### Reimagining the process: financial services client onboarding
 
 Shanx recently worked with a leading bank on automating client onboarding; not personal or individual customers, but institutional onboarding where there are many challenges such as KYC compliance and other strict documentation rules.
@@ -46,6 +50,9 @@ He discovered the industry average for onboarding was between 60 to 70 days with
 
 It’s not about taking an existing process and automating it, he said, but “reimagining what you were trying to do in that old process to begin with.”
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ### The importance of staying on time
 
 One of the biggest challenges of undergoing digital transformation is staying on target with your timeline and meeting the designated KPIs. Research commissioned by ABBYY showed one-in-five abandoned their automation project completely (22 percent).
@@ -56,6 +63,9 @@ For Shanx, meeting deadlines is heavily dependent on diversity in your automatio
 
 He believes that maintaining clarity in documenting your true end-to-end process and having the right kind of tool attached to each fragment of that newly imagined journey will help you stay on target.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Intelligent Document Processing in Financial Services: Use Cases
 
 eBook
@@ -72,6 +82,14 @@ The process was previously manual, meaning staff had to print out information an
 
 JLL saw benefits of transformation from the perspective of operational risk and operational efficiency but hadn’t foreseen the huge impact on employee experience. Their staff had been going through 10 different processes manually and felt they weren’t contributing to any kind of worth for the organization in doing this. After automation, employees could focus that time on more important components of their job which led to a huge increase in morale, according to a company survey.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ### Meet demands for self-service
 
 One area that has been driving automation is the demand for self-service from customers, who’d rather complete their requests online than in person. With machine learning and generative AI now in the mix, the pressure for self-service options is greater than ever.
@@ -88,6 +106,9 @@ Swaraj admits that one of JLL’s biggest mistakes was not using process mining 
 
 He also believes they need to be better at aligning their visions for automation with actual delivery, and in terms of delivery timelines believes it’s important to break down requirements into small achievable parts rather than trying to roll out in one go.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Future use of intelligent automation
 
 Looking to the future, both of our panelists believe that generative AI and large language models will be a key driver in automation.
@@ -100,6 +121,9 @@ You can access the entire customer panel session with JLL and IBM Consulting [he
 
 ![Neilmurphy 99X99](https://static1.abbyy.com/abbyycommedia/25709/neilmurphy-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 Neil Murphy
 
 Vice President, Global Channel Chief at ABBYY

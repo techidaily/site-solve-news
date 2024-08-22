@@ -1,7 +1,7 @@
 ---
 title: Intelligente Lösungen Für Die Zukunft Von Dokumentenmanagement Und -Erfassung
-date: 2024-08-20 16:42:29
-updated: 2024-08-22 10:57:33
+date: 2024-08-21T15:26:07.084Z
+updated: 2024-08-22T15:26:07.084Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7ba232e21fac78d0bae0e04300e47bac8679a7f9cd2328362771972e45a8c12a.jpg
@@ -23,14 +23,23 @@ January 18, 2023
 
 Im Zentrum dieses Wandels steht eine Technologie, die wir schon seit Jahrzehnten kennen – die optische Zeichenerkennung (OCR). Einst ein einfaches Werkzeug zur Digitalisierung von Text, spielt OCR heute eine entscheidende Rolle beim Training großer Sprachmodelle (LLM) mit hochwertigen Daten. Diese Entwicklung von einem einfachen Textkonvertierungstool zu einem hochentwickelten Datenlieferanten verdeutlicht die Anpassungsfähigkeit und die anhaltende Relevanz von IDP-Technologien. Die alte IDP ebnet den Weg für eine neue Ära, in der Präzision und Kontext von größter Bedeutung sind.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Anwendungen und Herausforderungen der realen Welt
 
 Bei der heutigen [OCR](https://tools.techidaily.com/abbyy/products/) geht es nicht nur darum, Texte zu lesen, sondern sie in ihrer Gesamtheit zu verstehen. Unternehmen verlangen nach höherer Genauigkeit und tieferen Dateneinblicken, was fortschrittlichere und differenziertere IDP-Technologien erforderlich macht. Diese Entwicklung ist jedoch nicht ohne Herausforderungen. Das Gleichgewicht zwischen Genauigkeit und kontextuellem Verständnis ist entscheidend. Wie stellen wir sicher, dass die in KI-Systeme eingespeisten Daten nicht nur korrekt, sondern auch kontextbezogen relevant sind?
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Die Zukunft der intelligenten Dokumentenverarbeitung (IDP)
 
 Die Zukunft der IDP liegt in ihrer Fähigkeit, sich nicht nur weiterzuentwickeln, sondern die Art und Weise, wie wir über Daten und KI denken, zu revolutionieren. Es geht darum, Systeme zu schaffen, die Dokumente nicht nur verarbeiten, sondern sie auch verstehen und nicht nur Daten, sondern auch Erkenntnisse gewinnen. Diese neue IDP wird der Eckpfeiler in der sich ständig weiterentwickelnden KI-Landschaft sein, eine entscheidende Komponente beim Aufbau intelligenterer, effizienterer und intuitiverer Systeme. 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Das Innenleben einer modernen IDP
 
 In dieser neuen Ära der IDP ist es wichtig, die technologischen Fortschritte zu verstehen, die diesen Wandel vorantreiben. Der Kern der [modernen intelligenten Dokumentenverarbeitung](https://tools.techidaily.com/abbyy/products/) liegt in der Integration mit fortschrittlichen KI-Techniken, insbesondere im Bereich des maschinellen Lernens und der Verarbeitung natürlicher Sprache.
@@ -47,6 +56,9 @@ Die Integration der Verarbeitung natürlicher Sprache (NLP) bringt IDP noch eine
 
 Das Schöne an modernen IDP-Systemen ist ihre Fähigkeit, ständig zu lernen und sich zu verbessern. Durch die Einbeziehung von Feedback-Schleifen können diese Systeme ihre Algorithmen verfeinern, sich an neue Dokumenttypen anpassen und ihre Genauigkeit im Laufe der Zeit verbessern. Durch diesen kontinuierlichen Lernprozess wird zudem sichergestellt, dass die IDP relevant und effektiv bleibt, auch wenn sich die Arten und Formate der Dokumente weiterentwickeln.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ## Die Rolle hochwertiger Daten beim Training großer Sprachmodelle (LLMs)
 
 Wenn man versteht, wie LLMs wie GPT-4, Claude, Llama und andere mit von IDP abgeleiteten Daten trainiert werden, wird die symbiotische Beziehung zwischen diesen Technologien deutlich. Hier finden Sie eine Aufschlüsselung des Prozesses:
@@ -71,6 +83,9 @@ Beim Trainingsprozess wird das LLM großen Datenmengen ausgesetzt, damit es lern
 
 Nach dem Training wird das LLM einer strengen Prüfung und Validierung unterzogen. Dazu gehört die Überprüfung der Fähigkeit, Sprache in verschiedenen Bereichen, Stilen und Formaten zu verstehen und zu erzeugen. Die Rückmeldungen aus dieser Phase fließen in den Trainingskreislauf ein und verfeinern die Fähigkeiten des LLM weiter.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## Anbruch einer neuen Ära
 
 Die Aussage „IDP ist tot, es lebe IDP“ ist kein Widerspruch, sondern ein Beweis für die Widerstandsfähigkeit und Weiterentwicklung dieser Technologie. Was wir als IDP kannten, hat sich gewandelt, und an seine Stelle ist ein fortschrittlicherer, integralerer Teil des KI-Ökosystems getreten. Es ist eine aufregende Zeit, Teil dieser Reise zu sein und den Anbruch einer neuen Ära der intelligenten Dokumentenverarbeitung und der künstlichen Intelligenz mitzuerleben. 
@@ -81,6 +96,9 @@ Erfahren Sie, warum ABBYY zum vierten Mal in Folge zum IDP-Marktführer ernannt 
 
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy

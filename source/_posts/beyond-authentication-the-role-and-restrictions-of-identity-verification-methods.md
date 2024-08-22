@@ -1,7 +1,7 @@
 ---
 title: "Beyond Authentication: The Role & Restrictions of Identity Verification Methods"
-date: 2024-08-19 22:11:33
-updated: 2024-08-22 11:12:41
+date: 2024-08-21T15:26:07.742Z
+updated: 2024-08-22T15:26:07.742Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/14df3d85d8466ef631a5707d30d5e14919d53addb84823d2a2bfe4ff558c0940.png
@@ -33,6 +33,9 @@ One of the critical aspects of online services involving sensitive data—such a
 
 A common misperception of identity proofing equates it with another common online security concept, _identity authentication_. Authentication is the use of a combination of credentials—generally a username and password—to gain access to a resource. However, before users can be assigned credentials, especially for access to sensitive resources, they must first verify who they are through identity proofing.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How does identity proofing work?
 
 The NIST identifies [three steps that make up the identity proofing process](https://pages.nist.gov/800-63-3/sp800-63a.html#sec5):
@@ -43,8 +46,14 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 ![](https://static1.abbyy.com/abbyycommedia/36099/2_steps-in-identity-proofing-and-identity-affirmation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
 
 While identity proofing is a vital capability for organizations looking to secure their processes, there is more to the story. Sophisticated scammers are capable of creating realistic documentation that may even trick some verification systems, even though the human being they describe is purely fictional. This is why businesses need identity affirmation alongside traditional identity proofing. 
@@ -64,6 +73,9 @@ While many vendors offer identity proofing and affirmation tools, few actually d
 * Exception handling (optional human auditing of certain transactions)
 * Process intelligence and mining to identify opportunities for process improvement
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What are common use cases for identity proofing?
 
 While fraud can happen in nearly any industry, sectors with a high frequency of high-risk transactions stand to derive the greatest benefit from AI-driven identity proofing solutions. Here’s a brief sampling of how businesses in various industries are putting identity proofing to use: 
@@ -96,12 +108,19 @@ While fraud can happen in nearly any industry, sectors with a high frequency of 
 
 ![abbyy proof of identity](https://static1.abbyy.com/abbyycommedia/36104/poi-gif-4_using-poi-1.gif?width=847&height=477)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 Over the course of just a few years, the volume and complexity of online transactions has grown exponentially, both for better and for worse. Fortunately, identity proofing and affirmation solutions can help businesses continue to meet consumers’ demands for efficient, convenient services while also staying one step ahead of fraudulent actors.
 
 Not only can you minimize the risk of fraud—and the corresponding costs in terms of money and reputation—but you can also earn and build upon the trust of your customers, building relationships that can support business goals for years to come.
 
 Learn about ABBYY's comprehensive identity proofing solution. [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/) does it all. 
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYY Proof of Identity
 
 Easy for your customers. Secure for your business.
