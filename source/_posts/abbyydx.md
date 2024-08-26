@@ -1,7 +1,7 @@
 ---
 title: ABBYYによる世界的なデジタル変革(DX)現状分析プロジェクト
-date: 2024-08-21T15:26:07.323Z
-updated: 2024-08-22T15:26:07.323Z
+date: 2024-08-25T21:37:21.983Z
+updated: 2024-08-26T21:37:21.983Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d45741490d50d66c52b24ae9074.jpg
@@ -91,3 +91,57 @@ Connect with us
 <!-- affiliate ads begin -->
 <a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
 <!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-crafting-stories-that-capture-attention-a-3-tiered-approach-to-fb-advertising-copywriting/"><u>[New] Crafting Stories That Capture Attention  A 3-Tiered Approach to FB Advertising Copywriting</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-lightweightapp-no-trouble-recording-windows-10/"><u>[New] In 2024, LightweightApp - No-Trouble Recording, Windows 10</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-essential-technique-screen-recording-on-the-go-for-2024/"><u>[New] The Essential Technique  Screen Recording on the Go for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-guffaw-gazette-twitters-funniest-threads/"><u>[Updated] Guffaw Gazette  Twitter's Funniest Threads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-transforming-tiktok-viewers-into-your-facebook-likes/"><u>[Updated] In 2024, Transforming TikTok Viewers Into Your Facebook Likes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-effortless-transferring-5-pathways-to-download-igtv-on-computers/"><u>2024 Approved  Effortless Transferring  5 Pathways to Download IGTV on Computers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfect-your-iphone-photography-top-tier-filming-aids/"><u>2024 Approved  Perfect Your iPhone Photography  Top-Tier Filming Aids</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-ultimate-choice-10-best-webcams-for-win-11/"><u>2024 Approved  Ultimate Choice  10 Best Webcams for Win 11</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/5-awesome-voice-changer-for-google-meet-for-2024/"><u>5 Awesome Voice Changer for Google Meet for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-abbyy-effektiv-steigerung-sicherheit-verringerung-betrug-und-beschleunigung-des-kunden-onboards-durch-innovative-identitatsprufung/"><u>AbbyY ABBYY: Effektiv Steigerung Sicherheit, Verringerung Betrug Und Beschleunigung Des Kunden-Onboards Durch Innovative Identitätsprüfung</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-announces-initiative-to-plant-approximately-2000-trees-annually-official-statement/"><u>ABBYY Announces Initiative to Plant Approximately 2,000 Trees Annually: Official Statement</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-insights-comparing-personal-hotspot-use-during-band-tour-journeys/"><u>ABBYY Insights: Comparing Personal Hotspot Use During Band Tour Journeys</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-solutions-enhancing-staff-and-client-journeys-with-expert-timeline-assistance/"><u>ABBYY Solutions: Enhancing Staff and Client Journeys with Expert Timeline Assistance</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-welcomes-weronika-niemczyk-to-chief-people-office-role-behind-the-scenes-insight-from-official-newsroom/"><u>ABBYY Welcomes Weronika Niemczyk to Chief People Office Role - Behind-the-Scenes Insight From Official Newsroom</u></a></li>
+<li><a href="https://solve-news.techidaily.com/adapting-new-global-business-model-how-abbyy-is-restructuring-to-achieve-international-growth-latest-insights/"><u>Adapting New Global Business Model: How ABBYY Is Restructuring to Achieve International Growth - Latest Insights</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ai-revolutionizes-accounts-receivable-in-multinational-catering-corporations-invoicing-systems/"><u>AI Revolutionizes Accounts Receivable in Multinational Catering Corporation's Invoicing Systems</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ais-impact-on-simplifying-ca-dmv-procedures/"><u>AI's Impact on Simplifying CA DMV Procedures</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ais-role-in-streamlining-insurance-document-handling-insights-from-the-abbyy-experts/"><u>AI's Role in Streamlining Insurance Document Handling - Insights From the ABBYY Experts</u></a></li>
+<li><a href="https://solve-news.techidaily.com/automate-your-website-with-efficient-cookiebot-technology/"><u>Automate Your Website with Efficient Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/automated-lead-generation-with-cookiebot-elevate-your-digital-marketing/"><u>Automated Lead Generation with Cookiebot: Elevate Your Digital Marketing</u></a></li>
+<li><a href="https://solve-news.techidaily.com/automated-user-tracking-with-cookiebot-technology/"><u>Automated User Tracking with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-your-automation-excellence-with-blue-prisms-award-winning-process-analytics/"><u>Boost Your Automation Excellence with Blue Prism's Award-Winning Process Analytics</u></a></li>
+<li><a href="https://solve-news.techidaily.com/comparative-analysis-of-two-key-methods-insights-from-pdf-documentation-lanalyse-des-processus/"><u>Comparative Analysis of Two Key Methods: Insights From PDF Documentation - L'Analyse Des Processus</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-walkthrough-for-fixing-hard-drive-issues-using-chkdsk-command-in-windows/"><u>Comprehensive Walkthrough for Fixing Hard Drive Issues Using Chkdsk Command in Windows</u></a></li>
+<li><a href="https://solve-news.techidaily.com/conjunto-de-palabras-clave-seguridad-y-privacidad-en-abbyy/"><u>Conjunto De Palabras Clave: Seguridad Y Privacidad en ABBYY</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-insights-for-smarter-more-tailored-advertising-solutions/"><u>Cookiebot-Driven Insights for Smarter, More Tailored Advertising Solutions</u></a></li>
+<li><a href="https://solve-news.techidaily.com/how-cookiebot-enhances-search-engine-visibility-and-drives-traffic/"><u>How Cookiebot Enhances Search Engine Visibility and Drives Traffic</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y28-5g-phone-without-pin-by-drfone-android/"><u>How to Unlock Vivo Y28 5G Phone without PIN</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-xiaomi-13t-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Xiaomi 13T Data? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-17-best-background-remover-apps-to-remove-image-background-easily/"><u>In 2024, 17 Best Background Remover Apps to Remove Image Background Easily</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-vivo-y200-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Vivo Y200 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-practices-for-advanced-ae-plug-ins/"><u>In 2024, Best Practices for Advanced AE Plug-Ins</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-infinix-smart-8-plus-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Infinix Smart 8 Plus to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-harnessing-video-magic-channel-creation-wizardry/"><u>In 2024, Harnessing Video Magic  Channel Creation Wizardry</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y27s-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y27s to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-igniting-interest-and-inviting-in-accelerating-audience-acquisition/"><u>In 2024, Igniting Interest and Inviting In  Accelerating Audience Acquisition</u></a></li>
+<li><a href="https://win-blog.techidaily.com/la-noires-arrival-on-windows-platform-everything-you-need-to-know/"><u>L.A. Noire's Arrival on Windows Platform – Everything You Need to Know</u></a></li>
+<li><a href="https://solve-news.techidaily.com/leveraging-ai-for-enhanced-roi-insights-from-abbyys-innovative-uk-partner-summit/"><u>Leveraging AI for Enhanced ROI: Insights From ABBYY's Innovative UK Partner Summit</u></a></li>
+<li><a href="https://solve-news.techidaily.com/maximisez-le-bonheur-des-clients-grace-a-lia-et-au-digital-marketing-strategies-cles-pour-une-experience-optimisee/"><u>Maximisez Le Bonheur Des Clients Grâce À L'IA Et Au Digital Marketing : Stratégies Clés Pour Une Expérience Optimisée</u></a></li>
+<li><a href="https://win-dash.techidaily.com/microsoft-windows-supported-sound-device-drivers-free-download/"><u>Microsoft Windows Supported Sound Device Drivers - Free Download</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/must-watch-max-original-shows-curated-by-us-whats-trending/"><u>Must-Watch Max Original Shows Curated by Us - What's Trending</u></a></li>
+<li><a href="https://solve-news.techidaily.com/navigating-cybersecurity-tackling-financial-frauds-and-crimes/"><u>Navigating Cybersecurity: Tackling Financial Frauds and Crimes</u></a></li>
+<li><a href="https://solve-news.techidaily.com/optimize-with-cookiebot-advanced-marketing-automation-solutions/"><u>Optimize with Cookiebot: Advanced Marketing Automation Solutions</u></a></li>
+<li><a href="https://solve-news.techidaily.com/optimizing-user-interactions-abbyys-expert-timeline-guidance-for-employees-and-customers/"><u>Optimizing User Interactions: ABBYY's Expert Timeline Guidance for Employees and Customers</u></a></li>
+<li><a href="https://solve-news.techidaily.com/python-enhancements-in-abbyys-neoml-an-open-source-ocr-library-with-dramatic-performance-boost/"><u>Python Enhancements in ABBYY's NeoML: An Open-Source OCR Library with Dramatic Performance Boost</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/solving-code-0xc10100be-video-glitch-fixed/"><u>Solving Code 0XC10100be: Video Glitch Fixed</u></a></li>
+<li><a href="https://solve-news.techidaily.com/timelinepi-ubernahme-erfolgreicher-wendepunkt-in-der-fortentwicklung-von-abbyys-fuhrender-position-bei-digitalisierungsprojekten/"><u>TimelinePI-Übernahme: Erfolgreicher Wendepunkt in Der Fortentwicklung Von ABBYYs Führender Position Bei Digitalisierungsprojekten</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/usb-tethering-trouble-heres-what-to-do-next/"><u>USB Tethering Trouble? Here's What to Do Next!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/utiliser-la-technologie-dabbyy-par-butagaz-pour-simplifier-le-changement-de-fournisseurs-denergie-chez-les-particuliers/"><u>Utiliser La Technologie D'ABBYY Par Butagaz Pour Simplifier Le Changement De Fournisseurs D'énergie Chez Les Particuliers</u></a></li>
+<li><a href="https://solve-news.techidaily.com/verbessern-sie-operative-leistungsfahigkeit-und-gewinnmargen-mithilfe-der-neueste-version-von-abbyy-timeline/"><u>Verbessern Sie Operative Leistungsfähigkeit Und Gewinnmargen Mithilfe Der Neueste Version Von ABBYY Timeline</u></a></li>
+</ul></div>
