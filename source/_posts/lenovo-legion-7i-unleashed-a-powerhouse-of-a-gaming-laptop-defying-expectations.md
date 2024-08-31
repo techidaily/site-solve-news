@@ -1,7 +1,7 @@
 ---
 title: "Lenovo Legion 7I Unleashed: A Powerhouse of a Gaming Laptop Defying Expectations"
-date: 2024-08-27 23:18:21
-updated: 2024-08-29 10:27:33
+date: 2024-08-30T11:11:45.145Z
+updated: 2024-08-31T11:11:45.145Z
 tags:
   - product-reviews
 categories:
@@ -112,6 +112,9 @@ Expand
 
 ![The Lenovo Legion 7i 16 Gen 9 has an Intel i9 and Nvidia graphics card](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/the-lenovo-legion-7i-16-gen-9-has-an-intel-i9-and-nvidia-graphics-card_53662863778_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  The overall design of Lenovo’s latest Legion 7i 16 Gen 9 is pretty sleek if I do say so myself. I had the privilege of testing the white model and, while I typically like gray or dark laptops, the white is pretty crisp and clean. The branding is minimal with just "Legion" and "Lenovo" graphics on the top. Overall, the aesthetic is definitely on the cleaner side for gaming laptops.
@@ -122,12 +125,32 @@ Jerome Thomas / How-To Geek
 
 ![The function key lights up keys that have commands](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/the-funtion-key-lights-up-keys-that-have-commands_53663005894_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  For the keyboard, mouse, and other peripherals like that, you’ll find that it’s pretty typical, but above average. The keyboard features 1.3mm of key travel and offers per-key RGB backlighting. The feel of the keys was a _tad_ squishy for me, but my two main keyboards are Cherry MX Blues and Kailh Copper switches, so most other keyboards feel squishy to me. The trackpad was only okay. The right-click is a little picky, but, for daily usage, it got the job done. For gaming, however, I would always recommend a dedicated mouse. The [SteelSeries Aerox](https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-oneplus-open-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/) lineup of wireless mice is my personal favorite.
 
 ![The Lenovo Legion 7i 16 Gen 9 in quiet mode](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/the-lenovo-legion-7i-16-gen-9-in-quiet-mode_53663112120_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  Battery life is something that’s coveted in a laptop, but, this isn’t just any laptop. It’s a gaming laptop. You’re not going to see stellar battery life here, and you’ll likely get around two to three hours of usage on a single charge when gaming. If you lower the brightness, drop the screen refresh rate, and disable all unnecessary software, you could eke out four to five hours, but that’ll be a stretch. However, with the included 230W power adapter, you can charge from 0% to 70% in just 30 minutes. And, if you have a compatible 140W USB-C battery, you can even power up on the go without a wall plug.
@@ -150,6 +173,9 @@ Jerome Thomas / How-To Geek
 
 ![The backlit keyboard on the Lenovo Legion 7i 16 Gen 9](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/the-backlit-keyboard-on-the-lenovo-legion-7i-16-gen-9_53661777647_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  Overall, I was extremely pleased with the performance of this laptop. When compared to other higher-class laptops, it also holds its own. I also have an RTX 4090-powered ASUS ROG Strix system which is an absolute monster of a machine. The RTX 4090 laptop, for comparison, hit 199FPS when in turbo mode. While that’s about two times the frames, it’s also over double the cost, and much, much larger and heavier.
@@ -158,6 +184,9 @@ Jerome Thomas / How-To Geek
 
 ![The Lenovo Legion 7i 16 Gen 9 on a table (2)](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/the-lenovo-legion-7i-16-gen-9-on-a-table-2_53661777582_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  In PCMark 10, the Legion 7i 16 Gen 9 scored 8,175, which is better than 94% of all results. PCMark 10 measures the complete system performance for office needs, like spreadsheet work, document editing, and more. Plus, the average gaming laptop only scored 7,066 here, making this a pretty solid performance metric.
@@ -166,6 +195,9 @@ Jerome Thomas / How-To Geek
 
  One thing that I wasn’t too happy with, however, was the coil whine. If you’ve not experienced coil whine before, you will with this laptop. Even at idle, there was a whine coming from the system that was a bit annoying. And, when the fans were at full tilt during a game, I could hear the coil whine even through my headphones. It’s not unbearable, but it’s something that I wasn’t very happy with for sure.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ##  Lenovo Included All the Ports You Could Want but Could Have Made It a Bit Less Confusing
 
 ![The ports on the left side of the Lenovo Legion 7i 16 Gen 9](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/the-ports-on-the-left-side-of-the-lenovo-legion-7i-16-gen-9_53662650521_o.jpg) 
@@ -190,6 +222,9 @@ Jerome Thomas / How-To Geek
 
 ![The file explorer on the Lenovo Legion 7i 16 Gen 9](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/the-file-explorer-on-the-lenovo-legion-7i-16-gen-9_53661777622_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  The 16-inch IPS WQXGA display here has a resolution of 2,560 x 1,600, which clocks in with a 16:10 aspect ratio. This seems to be the norm among modern laptops as people want a slightly taller aspect ratio, but it does mean that you’re pushing slightly more pixels when gaming. The RTX 4070 doesn’t let that affect performance though, which is nice. The screen features a 240Hz refresh rate, is 100% sRGB, and comes in at 500 nits, which is very noticeable when gaming. Windows didn’t find the display to be HDR ready, even though it’s DisplayHDR 400 certified, but the X-Rite Color Management with Dolby Vision and G-SYNC features all functioned as well as you’d expect.
@@ -212,6 +247,9 @@ Jerome Thomas / How-To Geek
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #####  Lenovo Legion 7i 16 Gen 9
 
 8/ 10 
@@ -236,3 +274,42 @@ Lenovo's Legion 7i 16 Gen 9 laptop packs a punch in the power department, offeri
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-how-to-create-gifs-from-youtube-videos-on-desktop-and-mobile-devices-for-2024/"><u>[New] How to Create GIFs From YouTube Videos on Desktop and Mobile Devices for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-virtual-venue-verdict-which-streamer-prevails/"><u>[New] In 2024, Virtual Venue Verdict  Which Streamer Prevails?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-picart-secrets-to-pristine-picture-perfection-for-2024/"><u>[New] PicArt Secrets to Pristine Picture Perfection for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-real-time-webcam-and-screen-melding-tips/"><u>[Updated] 2024 Approved  Real-Time Webcam & Screen Melding Tips</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1-abbyy-empowers-adactus-with-enhanced-purchase-order-automation/"><u>1. ABBYY Empowers Adactus with Enhanced Purchase Order Automation</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ai-abbyy-abbyy/"><u>帳票処理の最新ソリューション: AIが主導する文書分類とデータ抽出技術について学ぶ - ABBYYではじめる | ABBYYブログ</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbau-von-einschrankungen-wie-abbyy-das-potenzial-von-sharepoint-fur-die-national-park-authority-unlockt/"><u>Abbau Von Einschränkungen: Wie ABBYY Das Potenzial Von SharePoint Für Die National Park Authority Unlockt</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-ocr-software-development-kit-optimierte-realzeitoptimierung-fur-dateneingabeaufgaben/"><u>ABBYY OCR Software Development Kit: Optimierte Realzeitoptimierung Für Dateneingabeaufgaben</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-unveils-new-features-in-abbyy-flexicapture-version-122/"><u>ABBYY Unveils New Features in ABBYY FlexiCapture Version 12.2</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyys-mobile-ocr-enhancement-seamless-salesforce-connectivity-added-to-android-business-card-scanner/"><u>ABBYY's Mobile OCR Enhancement: Seamless Salesforce Connectivity Added to Android Business Card Scanner</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1724313213010-abbyyidcscan/"><u>ABBYYとiDCScanの市場リーチャー分析:トップパフォーマーを解き明かす</u></a></li>
+<li><a href="https://solve-news.techidaily.com/api-agreement-guide-understanding-abbyy-flexicapture-services-in-europe/"><u>API Agreement Guide: Understanding ABBYY FlexiCapture Services in Europe</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-custom-user-experience-optimization/"><u>Cookiebot-Driven Custom User Experience Optimization</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-visitor-experience/"><u>Cookiebot-Driven Performance: Enhancing Your Website's Visitor Experience</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-personalization-and-analytics-solutions/"><u>Cookiebot-Driven Personalization and Analytics Solutions</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-personalization-elevating-your-digital-journey/"><u>Cookiebot-Driven Personalization: Elevating Your Digital Journey</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-solutions-enhancing-your-websites-analytics-and-personalization/"><u>Cookiebot-Driven Solutions: Enhancing Your Website's Analytics and Personalization</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-solutions-optimize-your-sites-performance/"><u>Cookiebot-Driven Solutions: Optimize Your Site's Performance</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enabled-features-enhance-your-sites-user-experience/"><u>Cookiebot-Enabled Features: Enhance Your Site's User Experience</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enabled-enhance-your-sites-engagement-with-leading-analytics/"><u>Cookiebot-Enabled: Enhance Your Site's Engagement with Leading Analytics</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-analytics/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Analytics</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enhanced-experience-boost-your-websites-traffic-and-engagement/"><u>Cookiebot-Enhanced Experience: Boost Your Website's Traffic and Engagement!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-the-key-to-unlocking-advanced-user-tracking-capabilities/"><u>Cookiebot: The Key to Unlocking Advanced User Tracking Capabilities</u></a></li>
+<li><a href="https://solve-news.techidaily.com/customized-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Customized User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/discover-how-process-analytics-can-transform-your-business-a-closer-look-with-abbyys-top-10-benefits-guide/"><u>Discover How Process Analytics Can Transform Your Business: A Closer Look with ABBYY's Top 10 Benefits Guide</u></a></li>
+<li><a href="https://solve-news.techidaily.com/dsl-antragsabwicklung-mit-abbyy-formreader-bei-telefonica-weg-frei-fur-schnelles-breitband/"><u>DSL-Antragsabwicklung Mit ABBYY FormReader Bei Telefonica: Weg Frei Für Schnelles Breitband</u></a></li>
+<li><a href="https://solve-news.techidaily.com/effortless-site-personalization-via-advanced-cookie-technology-backed-by-cookiebot/"><u>Effortless Site Personalization via Advanced Cookie Technology - Backed by Cookiebot</u></a></li>
+<li><a href="https://win-forum.techidaily.com/1722915250413-explore-the-giants-of-social-networking-facebook-twitter-instagram-and-youtube/"><u>Explore the Giants of Social Networking: Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-your-iphone-15-pro-max-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your iPhone 15 Pro Max Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-best-3d-animation-software-free-and-paid-recommended/"><u>In 2024, Best 3D Animation Software Free and Paid Recommended</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pushing-creative-boundaries-the-power-of-magix-vpx-for-2024/"><u>Pushing Creative Boundaries  The Power of Magix VPX for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-insights-in-depth-computer-hardware-reviews-t17238628805738/"><u>Tom's Tech Insights: In-Depth Computer Hardware Reviews</u></a></li>
+<li><a href="https://solve-news.techidaily.com/unlocking-site-potential-with-cookiebot-technology-boost-seo-effortlessly/"><u>Unlocking Site Potential with Cookiebot Technology – Boost SEO Effortlessly</u></a></li>
+<li><a href="https://solve-news.techidaily.com/unlocking-the-power-of-business-processes-understanding-process-mining-explained/"><u>Unlocking the Power of Business Processes: Understanding Process Mining Explained</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-nokia-c22-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Nokia C22 | Dr.fone</u></a></li>
+</ul></div>
