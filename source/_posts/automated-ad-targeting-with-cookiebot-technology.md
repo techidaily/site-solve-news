@@ -1,21 +1,63 @@
 ---
 title: Automated Ad Targeting with Cookiebot Technology
-date: 2024-08-25T21:35:53.148Z
-updated: 2024-08-26T21:35:53.148Z
+date: 2024-09-10T09:58:42.841Z
+updated: 2024-09-11T09:58:42.841Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c60589952f8c878c66c4d03c2dc7430570638a52b8139e832f43c3d01160d93d.png
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Automated Ad Targeting with Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY Accelerates U.S. Food and Drug Administration’s Public Health Initiatives
 
 October 20, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) announced today that the U.S. Food and Drug Administration (FDA) is using its [Digital Intelligence platform](https://tools.techidaily.com/abbyy/products/) to accelerate its public health initiatives. ABBYY solutions digitize and process data within documents used for monitoring public health, including the government agency’s 30-year archive of forms used to report adverse events and current documents to ensure that critical reporting is captured accurately and quickly.
 
@@ -62,9 +104,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://fox-access.techidaily.com/new-in-2024-aspers-best-practices-secrets-to-deep-restful-sleep/"><u>[New] In 2024, Asper's Best Practices  Secrets to Deep, Restful Sleep</u></a></li>

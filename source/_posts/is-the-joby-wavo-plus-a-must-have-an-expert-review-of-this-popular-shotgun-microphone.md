@@ -1,7 +1,7 @@
 ---
 title: Is the Joby Wavo Plus a Must-Have? An Expert Review of This Popular Shotgun Microphone
-date: 2024-09-05T11:22:06.968Z
-updated: 2024-09-06T11:22:06.968Z
+date: 2024-09-10T09:58:41.321Z
+updated: 2024-09-11T09:58:41.321Z
 tags:
   - product-reviews
 categories:
@@ -9,13 +9,21 @@ categories:
 thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/52775238635_2c7fab8211_o.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is the Joby Wavo Plus a Must-Have? An Expert Review of This Popular Shotgun Microphone
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Key Takeaways
 
@@ -29,12 +37,20 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 #####  Joby Wavo Plus
 
 8/ 10 
@@ -100,22 +116,24 @@ Expand
 
 [$200 at Amazon](https://www.amazon.com/Joby-Wavo-Plus-Microphone-Monitoring/dp/B0BMG2JPC8?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002717&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fjoby-wavo-plus-review%2F&asc%5Fcampaign=Authority) [$199.88 at B&H Photo Video](https://www.bhphotovideo.com/c/product/1730027-REG/joby%5Fjb01734%5Fwavo%5Fplus%5Fon%5Fcamera%5Fmicrophone.html/BI/22163/KBID/28708/SID/UUhtgUeUpU2002717) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Design: Looks Good, Very Light
 
 ![The Joby Wavo Plus unboxed](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/52775238430_7e1e9e5e28_o.jpg) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Jason Montoya / How-To Geek
 
  One drawback of recording video and audio over the years has been the equipment’s size. Luckily, much of today’s equipment is compact and lightweight. The black/red Joby Wavo Plus follows this rule, weighing only 8.5 ounces and measuring just 4.72 x 4.65 x 3.29 inches. The weight alone might cause some pause for some. However, don’t equate it being light with it being made cheaply. It uses material that seems durable. That high quality does not extend to the foam-protective windscreen, however. Those things are often flimsy, and I can’t imagine the one on the Joby Wavo Plus surviving a burst of wind.
@@ -124,15 +142,37 @@ Jason Montoya / How-To Geek
 
  Though the Joby Wavo Plus is ideally suited for traditional cameras, I used my review unit primarily with my iPhone 15 Pro Max during testing. I chose this because the product is excellent for vloggers, anyone doing voiceover work, and podcasters.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ##  What It Does
 
 ![Controls being shown on the Joby Wavo Plus](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/52775238730_81e73f6d07_o.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Jason Montoya / How-To Geek
 
@@ -146,12 +186,6 @@ Jason Montoya / How-To Geek
 
  The Joby Wavo Plus includes two switches on the right side of the microphone. The first is the safe track switch, which limits the audio to -10dB on the right channel. When activated, the low-cut filter switch sits below this and is designed to remove low-end noises like cars in the background outside or inside air conditioning. You’ll find a three-position gain switch on the left side of the microphone. You can set this to 0 effect, -10dB, or +15 dB. Finally, on the backside is the power button, and below it is a large red headphone volume knob. Below it is a USB-C port and the audio output port.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Sound Quality: Subtle, But Effective
 
 ![Joby Wavo Plus at top of a Nikon camera](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/52774822811_55eccc790c_o.jpg) 
@@ -161,6 +195,26 @@ Jason Montoya / How-To Geek
  During my tests, I wanted to see how crisp and clear the sound recorded by the Joby Wavo Plus would be. I did this by comparing sounds recorded directly from my iPhone to ones using the external microphone. I did so in various outside conditions, including when it was quiet when neighbors were cutting grass, driving cars, etc. I also tested the microphone inside my home with the television on nearby.
 
  Overall, I was impressed with the results. The Joby Wavo Plus did an admirable job of removing background noise inside and outside. One area of concern was whenever I left out an intense burst of air. These plosives were picked up, which is something podcasters will especially have to take into account. At the minimum, you’ll have to be careful not to do this while recording.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ##  Should You Buy the Joby Wavo Plus?
 
@@ -172,13 +226,21 @@ Jason Montoya / How-To Geek
 
 ![Joby Wavo Plus Mic](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/cleanshot-2024-04-17-at-10-21-19-2x.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #####  Joby Wavo Plus
 

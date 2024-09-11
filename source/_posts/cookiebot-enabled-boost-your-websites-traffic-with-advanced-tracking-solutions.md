@@ -1,11 +1,25 @@
 ---
 title: "Cookiebot-Enabled: Boost Your Website's Traffic with Advanced Tracking Solutions"
-date: 2024-08-25T21:37:33.936Z
-updated: 2024-08-26T21:37:33.936Z
+date: 2024-09-10T09:58:44.677Z
+updated: 2024-09-11T09:58:44.677Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cbe88b794b4a33f4b9a69a7996ceb63e4276735d9be42e403798167c8028b648.jpg
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Cookiebot-Enabled: Boost Your Website's Traffic with Advanced Tracking Solutions
 
@@ -17,7 +31,35 @@ October 01, 2018
 
 ![](https://static1.abbyy.com/abbyycommedia/26518/mobile-monday-52.png) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 In today’s newsletter, we’ll talk about notable improvements and several new features that we think particularly worthy of your attention. We’ll also take a look at the newest version of Android and learn how to manage heaps of business cards.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## **iOS Tip: What’s New in iOS 12**
 
@@ -32,6 +74,26 @@ And in [here](https://tools.techidaily.com/abbyy/products/) we showed how you ca
 ![3D touch ABBYY apps](https://static1.abbyy.com/abbyycommedia/31859/2.jpg)  
 ![3D iOS ABBYY apps](https://static1.abbyy.com/abbyycommedia/31886/2-300x650.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **AirDropping passwords**
 
 You can now quickly share your iPhone password with another device using AirDrop.
@@ -39,6 +101,26 @@ You can now quickly share your iPhone password with another device using AirDrop
 To do this, tap **Settings → Passwords & Accounts → Website & App Passwords**, open the desired section, and tap the password that you want to share. A menu will pop up with the AirDrop command and a list of nearby devices.
 
 ![airdrop passwords](https://static1.abbyy.com/abbyycommedia/31860/3-300x650.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 **Security code AutoFill from SMS**
 
@@ -66,6 +148,20 @@ To view all notifications from the same program, simply tap one alert and the re
 
 ![grouping notifications iOS 12](https://static1.abbyy.com/abbyycommedia/31864/7-300x372.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **Second face for your iPhone X’s Face ID**
 
 With the arrival of iOS 12, the Face ID feature has received a major facelift. There is now a new Face ID setting called “Set Up an Alternate Appearance.” This may be useful if you put on spectacles, a wig, a hat or any other accessories that may confuse the face recognition feature. Interestingly, you can even add someone else’s face (e.g. your friend’s) and they will be able to unlock your phone.
@@ -78,12 +174,46 @@ Safari tabs on your iPhone X now look like normal browser tabs, allowing you to 
 
 ![Safari tabs on iPhone X](https://static1.abbyy.com/abbyycommedia/31866/9-768x354.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **Updated Voice Memos**
 
 The app appearance has received a major overhaul and received an uncluttered functional UI. The program now uses locations rather than dates for names of recordings. However, the most important change in out opinion is that the app now automatically saves your voice recordings to iCloud. This may be very useful for regular users like journalists, who can be sure that there recordings are safely stored in a cloud.
 
 ![voice memos](https://static1.abbyy.com/abbyycommedia/31867/10-300x650.png)  
 ![voice memos iCloud](https://static1.abbyy.com/abbyycommedia/31868/11-300x650.png)
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 
 **New way to close apps on the iPhone X**
 
@@ -94,6 +224,20 @@ We never knew why Apple made closing apps such a pain in iOS 10\. The issue has 
 Sometimes you may miss a call from an important contact and fail to notice a missed call alert. But Siri remembers everything and will prompt you to call that person back.
 
 ![use Siri to make a call](https://static1.abbyy.com/abbyycommedia/31869/12-300x91.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 **Custom Siri commands**
 
@@ -119,6 +263,20 @@ Screen Time also allows you to limit the use of certain apps and websites. Or yo
 
 ![Screen Time iPhone](https://static1.abbyy.com/abbyycommedia/31871/15-300x650.png)  
 ![Screen Time Apple](https://static1.abbyy.com/abbyycommedia/31872/16-300x650.png)  
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ![lock apps to reduce screen time iPhone](https://static1.abbyy.com/abbyycommedia/31873/17-300x650.png)
 
 **Group FaceTime calls**
@@ -126,6 +284,20 @@ Screen Time also allows you to limit the use of certain apps and websites. Or yo
 In iOS 12, you can place group FaceTime calls, calling up to 32 contacts at a time! The implementation is quite unusual: the video window becomes bigger and moves to the forefront when the other person is speaking.
 
 ![how to do a group FaceTime call](https://static1.abbyy.com/abbyycommedia/31882/3-1.gif)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 **Animoji in the iPhone X**
 
@@ -172,6 +344,40 @@ Now developers can implement in their apps a new AI response system powered by G
 ![What’s New in Android 9.0 aka Pie](https://static1.abbyy.com/abbyycommedia/31874/21-300x412.png)  
 ![What’s New in Android 9.0 Pie](https://static1.abbyy.com/abbyycommedia/31875/22-300x412.png)
 
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **Gesture navigation**
 
 Now users can interact with their Android device with gestures. Gestures can be used to open the list of recent apps or the list of all installed apps. Google hopes that developers will readily implement gestures in their apps.
@@ -196,41 +402,68 @@ If you are often visit conferences or trade shows or if you are an event organiz
 
 Business Card Reader app can be downloaded [here](http://qrs.ly/iw4uqj5).
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## **App of the Week: Merge – Couple Organizer**
 
 This is an organizer app for you and your other half. When you create an account, three tabs will become available, one for yourself, another for your spouse, and a third for both of you.
 
 ![Couple organizer app](https://static1.abbyy.com/abbyycommedia/31876/23-300x549.png)  
 ![Couple organizer Merge](https://static1.abbyy.com/abbyycommedia/31877/24-300x551.png)  
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![Merge app for couples](https://static1.abbyy.com/abbyycommedia/31878/25-300x552.png)
 
 You can create tasks and keep a budget. Now one will be left behind.
 
 ![tasks for sharing chores](https://static1.abbyy.com/abbyycommedia/31879/26-300x578.png)
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Available on [iOS](https://itunes.apple.com/us/app/merge-to-do-list-app-for-couples/id1227082205?ls=1&mt=8).
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## **First-Hand Experience: Advice From a Colleague**
 
 _By Sonya Oronova, Junior Project Manager_ 
 
 ![Sonya Oronova ABBYY](https://static1.abbyy.com/abbyycommedia/31880/27-768x576.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 There lots of videos and online tutorials on how to organize business meetings properly.
 
 Alas, people in many companies seem to ignore the simple rules suggested by business coaches and common sense. As a result, important decisions are delayed, the boss is unhappy, and the employees begin to regard all meetings a pure waste of time.
@@ -255,9 +488,6 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

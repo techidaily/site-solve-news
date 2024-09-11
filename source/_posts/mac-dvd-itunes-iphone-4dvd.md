@@ -1,11 +1,25 @@
 ---
 title: 無料Mac DVD iTunesに変換! IPhone 4用DVDリッパーツール
-date: 2024-08-30T11:12:38.307Z
-updated: 2024-08-31T11:12:38.307Z
+date: 2024-09-10T09:58:42.292Z
+updated: 2024-09-11T09:58:42.292Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/dd0fbdf5cb36119cb6841081ccc0579ed7b5b44574bcc137517a05ce80e5ff57.jpg
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 無料Mac DVD iTunesに変換! IPhone 4用DVDリッパーツール
 
@@ -26,7 +40,41 @@ MacX Free DVD to iPhone 4 Converter for Mac\-完全フリーなMac DVD コンバ
 * [正式版と比較](https://tools.techidaily.com/macxdvd/products/)
 [![rip Disney copy protected DVD movies](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../image-jp/macxdvdpro-banner-mini.jpg)](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../how-to-rip-disney-dvd-copy-protection-jp.htm) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [![Download MacX Free DVD to iPhone4 Converter](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../image-jp/bottom-download-big.jpg)](https://www.macxdvd.com/download/macx-free-dvd-to-iphone4-converter-for-mac.dmg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [![MacX DVD Ripper Pro](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../box-image/macx-ripper-box-left.jpg)](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../mac-video-converter-pro/buy-jp.htm) 
 
@@ -38,7 +86,35 @@ MacX Free DVD to iPhone 4 Converter for Mac\-完全フリーなMac DVD コンバ
 
 [![Buy MacX Video Converter Pro](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../image-jp/bottom-buy2.jpg)](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../mac-dvd-ripper-pro/buy-jp.htm) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [![MacX Video Converter Free Edition](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../box-image/free-converter-mini1.jpg)](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../dvd-ripper-mac-free/index-jp.htm) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 **[MacX Video Converter Free](https://tools.techidaily.com/macxdvd/products/)**
 
@@ -48,7 +124,41 @@ Mac OSの上で無料で、動画・音楽ファイルをAVI, MPEG, MP4, DivX, X
 
 [![MacX Video Converter Free](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../image-jp/free-download.jpg)](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../download/macx-video-converter-free-edition.dmg) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [![MacX YouTube Downloader](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../box-image/youtube-mini1.png)](https://tools.techidaily.com/macxdvd/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 **[MacX YouTube Downloader](https://tools.techidaily.com/macxdvd/products/)**
 
@@ -57,6 +167,20 @@ YouTube/FC2/Gyaoなどの動画を無料でダウロード保存できる。ultr
  完全無料 
 
 [![MacX YouTube Downloader](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../image-jp/free-download.jpg)](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../download/macx-youtube-downloader-free.dmg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## MacX Free DVD to iPhone 4 Converter for Mac 重要な特徴
 
@@ -67,6 +191,20 @@ DVDをiPhone4とiPodの通常形式へリッピング
 Macの上にDVDをiPhone4へ変換するのにこのDVDをiPhone4へのフリーコンバータを用意しております. MacX Free DVD to iPhone4 Converter for Macは完全フリーウェアで,DVDをiPhoneに対応動画ファイルへ出力してDVD動画をiPhoneの上で再生容易です.
 
 ![](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/image/2.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 あらゆる機種のiPhoneとiPodをサポート
 
@@ -102,9 +240,20 @@ DVDから音楽とスナップショートを抽出する
 
 このフリーDVDをiPhone4へ変換はMacユーザーのため, DVDから音楽を抽出でき,MP3形式で保存すると自由にポータブルデバイスの上で音楽を再生する.スクリーンショットの機能が備えて,DVDムービーの画像を写してJPGやBMP形式で保存してiPhone4の壁紙として使えます.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## 対応入力＆動作環境
 
 | サポートするDVD | 通常DVD、DVD CSS、リージョン1-6、ソニーArccOS、商業化DVD                                              |
@@ -112,23 +261,28 @@ DVDから音楽とスナップショートを抽出する
 | 出力フォーマット  | iPhone 5s/5c，iPhone 5，iPhone 4S，iPhone 3，3GS，MP4，MOV，MP3，AAC，AC3，PNG                 |
 | 動作環境      | Mac OS X Tiger/Leopard/Snow Leopard/Lion/Mountain Lion/Mavericks/Yosemite/El Capitan |
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## スクリーンショット
 
 ![](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/image/screenshot-jp.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 [クリックして画像拡大](https://tools.techidaily.com/macxdvd/products/)
 
 ![](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/image/screenshot02-jp.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download MacX DVD Ripper Mac Free Edition](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../image-jp/bottom-download-big.jpg)](https://www.macxdvd.com/download/macx-free-dvd-to-iphone4-converter-for-mac.dmg)
 
 人気な製品
@@ -140,9 +294,6 @@ DVDから音楽とスナップショートを抽出する
 * [iTunes DVDリッピングソフト](https://tools.techidaily.com/macxdvd/products/)
 * [**ギフト付きキャンペーン**](https://tools.techidaily.com/macxdvd/products/) ![](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../blog/new-fourteen/hot.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 無料製品
 
 * [DVDリッピングフリーソフト](https://tools.techidaily.com/macxdvd/products/)
@@ -161,18 +312,63 @@ DVDから音楽とスナップショートを抽出する
 
 ![Maclife](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../i-pic/maclife.gif) ![Macworld](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../i-pic/macworld.gif) ![Softpedia](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../i-pic/softpedia.gif) ![Macupdate](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../i-pic/macupdate.gif) ![Macnn](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../i-pic/macnn.gif) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## ユーザーコメント
 
 ![](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../image/customer-ico.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 このソフトウェアを利用して,見事にDVDコピー保護されたDVDムービーを最近買ったiPhone4へ変換出来上がった,僅か数分の間で本当に驚きくれました.出力した動画品質も高くて,すごく満足です.因みに,フリーウェアですが,マルウェアなし,アドウェアなし,スパイウェアなし,ウィルスも全然なし
 
 _\-向井_ 
 
 ![](https://www.macxdvd.com/dvd-to-iphone4-converter-for-mac-free/../image/customer-ico.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 数日の前,友達の推薦によってこのDVDをiPhoneへ変換を試しに使って見ました,DVDをiPhoneへ変換するにはその高い出力品質と速い作業速度をくださって嬉しいです.完全フリーウェアで,ユーザーにとって完璧な選択です.
 

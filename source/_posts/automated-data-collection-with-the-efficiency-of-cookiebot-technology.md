@@ -1,15 +1,49 @@
 ---
 title: Automated Data Collection with the Efficiency of Cookiebot Technology
-date: 2024-08-25T21:37:26.108Z
-updated: 2024-08-26T21:37:26.108Z
+date: 2024-09-10T09:58:44.530Z
+updated: 2024-09-11T09:58:44.530Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9d7929dfd160058cbbb368d96f71f3a942d4bc6b7e2652c599eedf5bcabac251.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Automated Data Collection with the Efficiency of Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Preserving 100-year history of weather observations in Brazil
 
@@ -21,6 +55,26 @@ Since 1909, scientists of the National Institute of Meteorology of Brazil (INMET
 
 Brazil, the largest country in South America, sits within the tropics. Its territory boasts three types of climate: equatorial, subtropical and tropical. The development of almost all branches of the Brazilian economy, and especially of agriculture, depends on a variety of weather conditions. Therefore, it is important for specialists to analyze and accurately predict possible changes in weather conditions. Forecasts are also needed to ensure the safety of aircraft, pilots and passengers, to protect ships and sailors, for the proper organization of fisheries and the development of tourism.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Deploying technology to rescue the past
 
 Thankfully, new capture technology like ABBYY FlexiCapture Engine can be deployed to restore the archive of weather observations that might otherwise be destroyed forever. Such weather history can help anticipate possible climate changes and make decisions on adjusting the country's agricultural and industrial policies. INMET has been painstakingly collecting data on precipitation, wind, relative humidity, pressure since 1909\. Day after day, its specialists registered this information and recorded it in their diaries of observations.
@@ -29,18 +83,46 @@ Until recently, these documents were kept in paper form. Archives with records w
 
 In 2010, INMET decided to digitize its entire archive of weather observations - 3 million pages or 4 billion characters - including notebooks, books and microfilms. The first step was collecting all records stored in different cities across Brazil. This was achieved in 2011, with help from the Institute's employees, who transported the documents to Brasilia and housed them in a 1500-square-meter storage area in the INMET building. During the next stage, the institute's specialists began to process and the restore the records, some of which were badly damaged. The final stage before digitization involved cataloging of all records and making it easy to find a diary of weather observations in the repository.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Forward, to digitization
 
 INMET kicked off its digitization efforts in 2012, by inviting Flexdoc, a Brazilian company which develops software for processing and storing documents. However, rather than using modern OCR technology, Flexdoc relied on outdated manual OCR to convert weather observations into electronic form. The company also developed templates indicating what data from scanned documents should be entered into the system. Flexdoc then sent scans to a group of operators in India, who manually inserted valuable data from the images into the template. The result was over 20 types of brochures with information about the weather, each in at least 6 different page format, and with more than 150 fields.
 
 To streamline and simplify this process, Flexdoc turned to ABBYY FlexiCapture Engine in 2014\. The first advantage is that the FC Engine enabled workers to use multiple scanners and feed results into one solution. Therefore, Flexdoc employees scanned pages from the weather observation diaries using 12 ATIZ BookDrive PR and Plustek OpticPro A360 scanners. They then teamed up with INMET specialists to check the quality of the scanned images after which the results were imported into the system based on the ABBYY FlexiCapture Engine. Flexdoc employees provided the templates developed by ABBYY FlexiCapture for processing the documents, while ABBYY's OCR technologies helped define and overlay templates for documents, find necessary fields in them and extract data. In decrepit documents or hand-written records, OCR technologies could not always recognize a field requiring digitization to be performed manually by Flexdoc employees.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Making everyone happy
 
 The full digitization of the archive of weather observations collected for 100 years took just three years to complete. In addition to creating a repository in paper format, all digitized information are securely kept on high-performance and fault-tolerant server in Brazil.
@@ -51,9 +133,20 @@ _By Elizaveta Titarenko_
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Like, share or repost
 
 Share 

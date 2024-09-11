@@ -1,15 +1,49 @@
 ---
 title: Enhance Website Traffic with Cookiebot's Powerful Analytics Tools
-date: 2024-08-25T21:37:49.642Z
-updated: 2024-08-26T21:37:49.642Z
+date: 2024-09-10T09:58:44.952Z
+updated: 2024-09-11T09:58:44.952Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f596754b304b70bbb49c94051d7f942eb048636fc50a63ae9e11d57d284605d.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Enhance Website Traffic with Cookiebot's Powerful Analytics Tools
 
 [Back to The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Customer Point of View: Highs and Lows of the Intelligent Automation Journey
 
@@ -38,10 +72,6 @@ It helped finance to foresee monthly expenses, improved cash flow, and streamlin
 
 As an IBM Consultant, Shanx has delivered change programs with leading companies such as Toyota, Proctor and Gamble, and Intel. He believes automation is not just about use cases but is rather a mindset, starting with basic things like considering how the innovation team will operate, whether to use project management tools, or how to track your own progress and report to leadership. He says you can’t digitize the life out of a client-facing process when your own operating model is pathetic. After all, the ultimate goal of any business is to serve its customers. Therefore, it's crucial to focus first on client-facing experiences and work backwards from there. If your internal operations can’t support the ideal customer outcome, you must address that underlying issue.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ### Reimagining the process: financial services client onboarding
 
 Shanx recently worked with a leading bank on automating client onboarding; not personal or individual customers, but institutional onboarding where there are many challenges such as KYC compliance and other strict documentation rules.
@@ -50,9 +80,26 @@ He discovered the industry average for onboarding was between 60 to 70 days with
 
 It’s not about taking an existing process and automating it, he said, but “reimagining what you were trying to do in that old process to begin with.”
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### The importance of staying on time
 
 One of the biggest challenges of undergoing digital transformation is staying on target with your timeline and meeting the designated KPIs. Research commissioned by ABBYY showed one-in-five abandoned their automation project completely (22 percent).
@@ -63,9 +110,20 @@ For Shanx, meeting deadlines is heavily dependent on diversity in your automatio
 
 He believes that maintaining clarity in documenting your true end-to-end process and having the right kind of tool attached to each fragment of that newly imagined journey will help you stay on target.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Intelligent Document Processing in Financial Services: Use Cases
 
 eBook
@@ -82,14 +140,6 @@ The process was previously manual, meaning staff had to print out information an
 
 JLL saw benefits of transformation from the perspective of operational risk and operational efficiency but hadn’t foreseen the huge impact on employee experience. Their staff had been going through 10 different processes manually and felt they weren’t contributing to any kind of worth for the organization in doing this. After automation, employees could focus that time on more important components of their job which led to a huge increase in morale, according to a company survey.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ### Meet demands for self-service
 
 One area that has been driving automation is the demand for self-service from customers, who’d rather complete their requests online than in person. With machine learning and generative AI now in the mix, the pressure for self-service options is greater than ever.
@@ -97,6 +147,20 @@ One area that has been driving automation is the demand for self-service from cu
 Clients want a short, sweet answer to their questions straight away. They don’t want to be sent a huge PDF of a contract and told to either find the answer themselves or wait a few days for the team to dig it out. JLL has identified this as a focus area for their business and is prioritizing the resolution of this challenge.
 
 Shanx is also in agreement about meeting demand for self-service options, but believes we need to do better with finding information in unstructured data, where there tends to be less than a 95 percent success rate. However, he feels technologies like generative AI will leapfrog that issue to obtain answers directly and in a very precise manner, which he thinks will be a game changer in banking for services such as equity research.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Mistakes to avoid
 
@@ -106,9 +170,6 @@ Swaraj admits that one of JLL’s biggest mistakes was not using process mining 
 
 He also believes they need to be better at aligning their visions for automation with actual delivery, and in terms of delivery timelines believes it’s important to break down requirements into small achievable parts rather than trying to roll out in one go.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Future use of intelligent automation
 
 Looking to the future, both of our panelists believe that generative AI and large language models will be a key driver in automation.
@@ -121,9 +182,20 @@ You can access the entire customer panel session with JLL and IBM Consulting [he
 
 ![Neilmurphy 99X99](https://static1.abbyy.com/abbyycommedia/25709/neilmurphy-99x99.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Neil Murphy
 
 Vice President, Global Channel Chief at ABBYY

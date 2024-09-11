@@ -1,21 +1,69 @@
 ---
 title: "A Journey Through Time: Safeguarding Brazillian Meteorological Data for Over a Hundred Years | The ABBYY Chronicle"
-date: 2024-08-25T21:38:08.468Z
-updated: 2024-08-26T21:38:08.468Z
+date: 2024-09-10T09:58:45.255Z
+updated: 2024-09-11T09:58:45.255Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659cd0b84f4316b6b432fb112c.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## A Journey Through Time: Safeguarding Brazillian Meteorological Data for Over a Hundred Years | The ABBYY Chronicle
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Preserving 100-year history of weather observations in Brazil
 
 March 01, 2018
 
 ![100-year history of weather observations in Brazil digitally archived & preserved with ABBYY tech](https://static2.abbyy.com/abbyycommedia/25265/9041e_blog_934х400.png) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Since 1909, scientists of the National Institute of Meteorology of Brazil (INMET) have collected more than 3 million pages of weather records and information about climate change across the country. Their impressive record include climatological data from the sultry Rio de Janeiro, the roaring Iguazu Falls, the gloomy forests of the Amazon and the misty Sao Paulo. However, there is a common problem that these scientists must address to save collected information from rapid obsolescence: the digitization and quality control of weather observations collected over a 100-year period.
 
@@ -29,18 +77,40 @@ Until recently, these documents were kept in paper form. Archives with records w
 
 In 2010, INMET decided to digitize its entire archive of weather observations - 3 million pages or 4 billion characters - including notebooks, books and microfilms. The first step was collecting all records stored in different cities across Brazil. This was achieved in 2011, with help from the Institute's employees, who transported the documents to Brasilia and housed them in a 1500-square-meter storage area in the INMET building. During the next stage, the institute's specialists began to process and the restore the records, some of which were badly damaged. The final stage before digitization involved cataloging of all records and making it easy to find a diary of weather observations in the repository.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Forward, to digitization
 
 INMET kicked off its digitization efforts in 2012, by inviting Flexdoc, a Brazilian company which develops software for processing and storing documents. However, rather than using modern OCR technology, Flexdoc relied on outdated manual OCR to convert weather observations into electronic form. The company also developed templates indicating what data from scanned documents should be entered into the system. Flexdoc then sent scans to a group of operators in India, who manually inserted valuable data from the images into the template. The result was over 20 types of brochures with information about the weather, each in at least 6 different page format, and with more than 150 fields.
 
 To streamline and simplify this process, Flexdoc turned to ABBYY FlexiCapture Engine in 2014\. The first advantage is that the FC Engine enabled workers to use multiple scanners and feed results into one solution. Therefore, Flexdoc employees scanned pages from the weather observation diaries using 12 ATIZ BookDrive PR and Plustek OpticPro A360 scanners. They then teamed up with INMET specialists to check the quality of the scanned images after which the results were imported into the system based on the ABBYY FlexiCapture Engine. Flexdoc employees provided the templates developed by ABBYY FlexiCapture for processing the documents, while ABBYY's OCR technologies helped define and overlay templates for documents, find necessary fields in them and extract data. In decrepit documents or hand-written records, OCR technologies could not always recognize a field requiring digitization to be performed manually by Flexdoc employees.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Making everyone happy
 
 The full digitization of the archive of weather observations collected for 100 years took just three years to complete. In addition to creating a repository in paper format, all digitized information are securely kept on high-performance and fault-tolerant server in Brazil.
@@ -51,9 +121,20 @@ _By Elizaveta Titarenko_
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Like, share or repost
 
 Share 

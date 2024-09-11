@@ -1,15 +1,43 @@
 ---
 title: "Leveraging AI for Enhanced ROI: Insights From ABBYY's Innovative UK Partner Summit"
-date: 2024-08-25T21:37:59.214Z
-updated: 2024-08-26T21:37:59.214Z
+date: 2024-09-10T09:58:45.090Z
+updated: 2024-09-11T09:58:45.090Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3a0ff2475a3d988ca582620a3d23548d82c16dbdfb31f6e8194792291b9fef05.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Leveraging AI for Enhanced ROI: Insights From ABBYY's Innovative UK Partner Summit
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY’s UK Partner Day Highlights Innovation and ROI Using AI
 
@@ -25,6 +53,20 @@ Despite some claims that intelligent document processing (IDP) is obsolete, Max 
 
 **![abbyy-uk-partner-day-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_1.jpg)** 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 #### How the NHS found success with ABBYY Vantage and Extra Technology 
 
 Extra Technology showcased the transformative power of [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), for fully automating invoice processing and reducing payment risk at the Manchester NHS Trust, where thousands of different types of invoices are processed a year. With ABBYY’s continuous machine learning capabilities, post-processing and data validation, invoicing times were significantly reduced, freeing up staff to focus on other business-critical areas and yielding cost-savings in the millions. 
@@ -36,6 +78,20 @@ Adopting ABBYY IDP has resulted in an evolution of our function and our staff, e
 Edd Berry, Director of Finance Innovation, Manchester University NHS Foundation Trust
 
 **![abbyy-uk-partner-day-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_3.jpg)** 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### How to streamline freight processes with ABBYY 
 
@@ -72,6 +128,20 @@ Thank you to all our partners for their continued dedication and collaboration. 
 _Subscribe to stay connected with email updates and thought leadership insights from ABBYY._ 
 
 ![Dan Corp](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/autors-headshots/dan_corp.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Dan Corp
 
@@ -138,9 +208,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://youtube-lab.techidaily.com/024-approved-7-comedy-youtube-video-ideas-that-only-funny-people-are-allowed-to-try/"><u>[New] 2024 Approved  7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try</u></a></li>

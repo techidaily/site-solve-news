@@ -1,15 +1,43 @@
 ---
 title: Cookiebot-Driven Custom Solutions for Tailored Online Engagement
-date: 2024-08-25T21:37:31.674Z
-updated: 2024-08-26T21:37:31.674Z
+date: 2024-09-10T09:58:44.635Z
+updated: 2024-09-11T09:58:44.635Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117f9a410f704fd68a5566fdfc.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Cookiebot-Driven Custom Solutions for Tailored Online Engagement
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYYは日本のビジネスの成長を牽引する為に清水智人氏をABBYYジャパンの代表に指名しました。
 
@@ -17,7 +45,35 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ![Tomohito Shimizu Newsroom 848X444](https://static1.abbyy.com/abbyycommedia/37844/tomohito-shimizu-newsroom-848x444.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ABBYY（本社：米国カリフォルニア州）は本日10月2日付けで清水智人がABBYYジャパン株式会社（本社：東京都港区）の代表取締役社長に就任したことをお知らせいたします。
 
@@ -31,15 +87,40 @@ ABBYYはIDPとプロセスマイニングソリューションで業界アナリ
 
 清水氏はABBYY入社以前、株式会社リコーに30年以上勤務し、MFP/ソフトウェア開発チームのマネジメントから経営戦略策定まで幅広い業務を経験しています。日本および米国シリコンバレーで勤務を通じ、ハードウェアソリューションとソリューションソフトウェアの両方で豊富な経験を持っています。
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### ABBYYについて
 
 ABBYYはお客様の情報を業務効率向上に活かします。私たちはイノベーションと経験を組み合わせ、ビジネスクリティカルなドキュメントからデータを抽出し、200を超える言語で、インテリジェントで実用的な成果へとリアルタイムに変換します。ABBYYは、フォーチュン500企業の多くを含む世界10,000社以上の企業において、カスタマーエクスペリエンス、オペレーショナルエクセレンス、競争上の優位性など、最も重要な分野で大きな成果を上げることに貢献しています。ABBYYはカリフォルニア州ミルピタスに本社を置き、14カ国にオフィスを構えるグローバル企業です。詳細については、[www.abbyy.com/ja/company](https://tools.techidaily.com/abbyy/products/)をご参照ください。 [LinkedIn](https://www.linkedin.com/company/abbyy)、[Twitter](https://twitter.com/ABBYY%5FSoftware)、[Facebook](https://www.facebook.com/ABBYYsoft)でのフォローもお待ちしております。
 
 ABBYYは登録商標または商標であり、ABBYYグループ会社のロゴ、会社名（またはその一部）、または製品名の一部である場合もあり、それぞれの所有者の同意なしに使用することはできません。
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 

@@ -1,7 +1,7 @@
 ---
 title: "Appreciating Core Significance: The Secret Behind Document Valuation at ABBYY Thought Leadership Blog"
-date: 2024-08-25T21:38:15.710Z
-updated: 2024-08-26T21:38:15.710Z
+date: 2024-09-10T09:58:45.394Z
+updated: 2024-09-11T09:58:45.394Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/149d89db1d566f99ab4d551162b9bf69c95986fcd0a75b9aee50a4353f78795e.jpg
@@ -11,15 +11,57 @@ thumbnail: https://thmb.techidaily.com/149d89db1d566f99ab4d551162b9bf69c95986fcd
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Understanding the intrinsic value of documents
 
 September 07, 2017
 
 ![Understanding the intrinsic value of documents | ABBYY Blog Post](https://static2.abbyy.com/abbyycommedia/25229/cropblog_0709.png) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 We have all done it. Spent ages looking for that one document, with the name of that guy from the company with a funny name. Was it an email, a PowerPoint presentation or a PDF?
 
 Why do we search for documents in the first place? Usually it is to discover what information resides _inside_ the document. But if we already have the document, shouldn’t we already know what it contains?
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Information buried inside documents
 
@@ -31,9 +73,20 @@ This necessitates that the document be searched for, retrieved and read in order
 
 Optical Character Recognition technologies have been with us for decades, what is now required is something that can rapidly, cost-effectively and _intelligently_ extract structured business information from these documents.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Improving the total customer experience
 
 If we have immediate access to this business information, we can act on it the moment it is received. This ensures that organizations can provide the fastest and most appropriate response to customer interactions.
@@ -46,18 +99,46 @@ Imagine the improvement in the customers experience if the response automaticall
 
 Furthermore, by understanding the content of the inquiry it would be possible to automatically identify those issues which are high priority and escalate them accordingly.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Accelerating business transactions and creating new revenue streams
 
 Having the ability to process unstructured information and transforming it into actionable business data, strips away the inherent latency in business operations. This accelerate business transactions and optimizes successful business outcomes.
 
 The insight provided into these interactions can also help identify potential new revenue streams, by providing a level of analytics inaccessible if the information were to remain locked away, bereft of structure, inside isolated pieces of content.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Accounts payable
 
 Every business deals with Accounts Payable. Many small businesses view the accounting function as a necessary evil, but it is the prompt payment of invoices that literally keeps you, and your suppliers, in business.
@@ -66,18 +147,12 @@ Invoices are an example of documents containing critical business information, w
 
 Invoices, while containing much of the same business information, can look very different. What is needed is the ability to not only recognize the machine- (and sometimes hand-) printed characters on the page, but the capability to classify the document as an invoice. Once the document is classified as an invoice, the data contained within it needs to be identified, extracted and passed (along with the captured image) to both the appropriate Financial software applications and ECM repository.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Putting business information to work
 
 The solution is to integrate capture technologies with embedded AI (Artificial Intelligence) to autonomously classify documents, extract the desired business critical information and seamlessly pass the captured documents along with their accompanying extracted _structured_ business information to ECM, ERP and BPM applications.
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) [Finance & Accounting](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

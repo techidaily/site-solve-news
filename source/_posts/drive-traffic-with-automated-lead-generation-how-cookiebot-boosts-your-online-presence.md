@@ -1,11 +1,25 @@
 ---
 title: "Drive Traffic with Automated Lead Generation: How Cookiebot Boosts Your Online Presence"
-date: 2024-08-25T21:37:43.997Z
-updated: 2024-08-26T21:37:43.997Z
+date: 2024-09-10T09:58:44.854Z
+updated: 2024-09-11T09:58:44.854Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e0fa0d67e26442f6514904daf3cc23134382c2cc52f88c01d78e6b3f6c28c68c.jpg
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Drive Traffic with Automated Lead Generation: How Cookiebot Boosts Your Online Presence
 
@@ -13,9 +27,43 @@ thumbnail: https://thmb.techidaily.com/e0fa0d67e26442f6514904daf3cc23134382c2cc5
 
 Education/Research
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## ABBYY FlexiCapture unterstützt die Universität Zürich bei der Prüfungskorrektur
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY FlexiCapture unterstützt die Universität Zürich bei der Prüfungskorrektur
 
@@ -47,9 +95,26 @@ Deutliche Zeitersparnis bei der Korrektur von Prüfungsbögen sowie starke Arbei
 
 **An Universitäten werden jedes Semester zahlreiche schriftliche Prüfungen mit 1.000 und mehr teilnehmenden durchgeführt – entsprechend zeitaufwändig und umfangreich sind manuelle korrekturaufgaben, mit denen Dozierende belastet werden. Ein effizientes Management der Unterlagen wird so schnell zum Prüfstein für die Verwaltung. Die Universität Zürich unterstützt diese Prozesse daher mit [ABBYY Flexicapture](https://tools.techidaily.com/abbyy/products/) zur elektronischen Verarbeitung und entlastet durch die automatisierte Formularauswertung der Prüfungen ihre Mitarbeiter.**
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Herausforderung
 
 Der Bologna-Prozess zur Schaffung eines einheitlichen europäischen Hochschulraums hat wegen der damit einhergehenden, veränderten Modalitäten der Leistungsbewertung zu einem signifikanten Anstieg schriftlicher Prüfungen an den europäischen Hochschulen geführt.
@@ -58,9 +123,20 @@ Kommt dann noch - wie im Falle der Universität Zürich - ein stetiger Anstieg d
 
 Aus diesen Gründen hat die Leitung der Universität Zürich bereits vor einigen jahren beschlossen, ein gesamtuniversitäres Projekt zur elektronischen Unterstützung schriftlicher Prüfungen zu lancieren. Im rahmen dieses Projekts sollen die organisatorischen und technischen Voraussetzungen geschaffen werden, um das Management schriftlicher Prüfungen bestmöglich mit elektronischen Mitteln zu unterstützen. Vordringliches Ziel dieses Ansatzes ist es, eine nachhaltige und spürbare entlastung der Dozierenden bei Vorbereitung, Durchführung und korrektur schriftlicher Prüfungen zu schaffen.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Lösung
 
 In der Theorie werden die optimalen Effizienzgewinne mit der elektronischen Prüfungsdurchführung erzielt. Diese Variante hat jedoch - neben der damit verbundenen technischen Komplexität - den Nachteil, dass die hierzu benötigte IT-Infrastruktur einen erheblichen Kostenfaktor darstellt. Dies gilt insbesondere im Hinblick auf hochvolumige Prüfungen. An der Universität Zürich sind jedoch Prüfungen mit 1.000 und mehr Teilnehmenden keine Seltenheit. Daher wurde der elektronischen Prüfungsdurchführung die automatisierte Auswertung papierbasierter Prüfungen zur Seite gestellt.
@@ -74,9 +150,20 @@ _Jürgen Petry,_
 
  _Projektleiter,Universität Zürich_ 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Ergebnis
 
 Um die automatische Verarbeitung der ausgefüllten Prüfungsbögen mit ABBYY FlexiCapture zu optimieren, wird über ein Vorsystem ein auf die konkreten Prüfungsinhalte abgestimmter Fragebogen generiert. Durch die Berücksichtigung der Layout-Empfehlungen von ABBYY ist im Nachgang eine optimale Verarbeitung der digitalisierten Prüfungsbögen durch ABBYY FlexiCapture gewährleistet. Bei Bedarf können diese Prüfungsbögen auch mit einem personalisierten Barcode erzeugt werden, was den Automatisierungsgrad bei der elektronischen Verarbeitung sogar noch weiter erhöht. Zur Digitalisierung der Prüfungsbögen werden Kodak-Produktionsscanner eingesetzt. Vorteil: Für den Import der Indexierungsinformationen aus der Kodak-Scansoftware besitzt ABBYY FlexiCapture bereits standardmäßig eine passend ausgelegte XML-Schnittstelle. Mittels der in ABBYY FlexiCapture integrierten Workflow-Steuerung wird die Prüfungsauswertung dann in zwei Phasen abgearbeitet: Zuerst werden die OCR/OMR-Ergebnisse - hier also die markierten bzw. nicht markierten Kontrollkästchen - im Rahmen der Datenverifizierung nachbearbeitet.
@@ -91,9 +178,6 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -102,9 +186,6 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 
 Teilen 
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
