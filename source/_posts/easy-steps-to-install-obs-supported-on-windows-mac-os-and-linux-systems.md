@@ -1,7 +1,7 @@
 ---
 title: "Easy Steps to Install OBS: Supported on Windows, Mac OS & Linux Systems"
-date: 2024-09-09T00:00:56.831Z
-updated: 2024-09-16T13:37:28.493Z
+date: 2024-09-16T16:17:04.340Z
+updated: 2024-09-21T16:26:31.718Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/5b80927e68923eec1d1361008f6bde3827f135dcc6188baf767c77fe55f4ad9e.png
@@ -210,6 +210,13 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 * [Pilotes NVIDIA](https://www.nvidia.com/Download/index.aspx)
 * [Pilotes Intel Graphics](https://www.intel.com/content/www/us/en/support/products/80939/graphics-drivers.html)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Installer DirectX 12
 
 ![](https://cdn.staticont.net/default/0012/47/72e52d810cb1f6f8d15a641fc4b287b8c43fbcd6.webp)
@@ -236,13 +243,6 @@ Dans le menu qui s'ouvre, cliquez sur **Mode Jeu**. Passez à **On** pour active
 
 Si vous ne trouvez pas ces paramètres, cela signifie que la dernière Windows Creators Update n'est pas installée sur votre PC.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Gérez vos heures actives
 
 ![](https://cdn.staticont.net/pages/0012/47/719892cfb3ccc9e05c269dd850ef3c6c37589035.webp)
@@ -260,6 +260,13 @@ Pour définir vos heures actives, appuyez sur la   **touche Windows** \+ **I**, 
 Si vous êtes un joueur de nuit ou si vos heures de sommeil varient considérablement, de sorte que vous ne pouvez pas définir une heure de repos spécifique, nous vous conseillons (en plus de changer vos habitudes de sommeil) de vous assurer que Windows vous rappelle chaque fois qu'il voudra redémarrer afin que, si cela se produit pendant que vous jouez, vous puissiez toujours le retarder.
 
 Pour ce faire, retournez à Windows Update, cliquez sur **Advanced options** et assurez-vous que l'interrupteur sous **We'll show a reminder when we're going to restart** est activé.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Réglez les paramètres de vos effets visuels
 
@@ -313,19 +320,6 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 2. Augmentez vos performances graphiques en utilisant l'overclocking. Pour ce faire, cliquez sur l'onglet **Performance**, puis sur **Tuning**, sélectionnez **Automatique**, et enfin **GPU Overclocked**.
 3. Si vous utilisez une carte AMD, vous n'avez pas besoin de MSI Afterburner pour contrôler les performances. Il vous suffit d'appuyer sur **Ctrl** \+ **Shift** \+ **O** pour que vos statistiques apparaissent dans le jeu.
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Réduire la résolution dans un jeu
 
 Cette solution entre facilement dans la catégorie des "solutions rapides". Parfois, votre système ne peut tout simplement pas gérer un jeu, et vous n'avez pas le temps de chercher des solutions à plus long terme. Allez dans les paramètres système du jeu et réduisez la résolution d'un niveau. Surveillez ensuite votre FPS jusqu'à ce que les choses s'améliorent.
@@ -353,13 +347,6 @@ Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ?
 Passer d'un disque dur à un disque SSD n'améliorera pas radicalement les performances de vos jeux, mais cela peut vous aider à réduire considérablement les temps de chargement. Il est vrai que les disques durs SSD peuvent être assez chers et il peut sembler que les temps de chargement ne sont pas une question si importante pour investir votre argent. Mais si ce n'est probablement pas la première chose à laquelle vous pensez lorsque vous accélérez votre ordinateur portable, ce n'est pas non plus la dernière. Les jeux d'aujourd'hui prennent de plus en plus d'espace disque, donc si vous voulez jouer aux derniers jeux, passer d'un disque dur à un disque SSD peut être un véritable gain de temps et vos temps de chargement de jeu peuvent passer de 30-40 secondes à 2-3, ce qui est assez significatif.
 
 Quant à l'aspect financier, si un gros SSD pour votre système d'exploitation et vos jeux est trop cher pour vous, prenez un petit SSD pour votre système d'exploitation et gardez un gros disque dur pour les jeux.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mettez à niveau votre GPU/CPU
 
@@ -428,13 +415,6 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 
 ![](https://cdn.staticont.net/pages/0013/24/e045d566ab9cee25f15459463af7614838747945.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
 
 ### Utiliser une alimentation externe
@@ -453,6 +433,13 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 2. Pour la ventilation, essayez de surélever votre ordinateur portable ou utilisez un bureau conçu pour les ordinateurs portables.
 3. Réglez les paramètres de vos ventilateurs pour qu'ils ne soient pas trop sollicités.
 4. Si vous le pouvez, jouez sur votre ordinateur portable dans un environnement frais.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mettez à niveau votre GPU et votre RAM
 
@@ -493,19 +480,6 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 
 Foire aux questions 
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Comment optimiser mon ordinateur pour les jeux ?
 
 L'article ci-dessus énumère une série de mesures que vous pouvez prendre pour optimiser votre ordinateur portable ou de bureau pour les jeux. Voici les principaux conseils :
@@ -514,6 +488,13 @@ L'article ci-dessus énumère une série de mesures que vous pouvez prendre pour
 * Modifiez les paramètres de votre carte graphique
 * Mettez à niveau votre GPU et/ou votre CPU
 * Vérifiez les paramètres de performance de votre Windows.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Qu'est-ce qui ralentit mon ordinateur ?
 
@@ -534,6 +515,13 @@ Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, vo
 3. Effectuez un nettoyage du disque et une maintenance du système
 4. Passez en revue votre programme de démarrage et désactivez ceux que vous n'utilisez pas.
 5. Installez de la RAM supplémentaire
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Windows 10 est-il meilleur pour les jeux ?
 
@@ -592,17 +580,13 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unlocking-the-potential-of-your-online-persona-on-facebook/"><u>[New] In 2024, Unlocking the Potential of Your Online Persona on Facebook</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-premier-8-edits-suites-for-linux-buffs/"><u>[New] Premier 8 Edits Suites for Linux Buffs</u></a></li>
-<li><a href="https://solve-news.techidaily.com/54sh5paz44ki44ol44oh44og44o844ot44o844ov44kh44kk44or5asj5oplusb44oe44o844or44go44km44kn44ow44k144kk44oi44gu44ks44kk44oj/"><u>無料アニメムービーファイル変換ツールとウェブサイトのガイド</u></a></li>
-<li><a href="https://solve-news.techidaily.com/best-no-cost-tools-to-save-tracks-downloaded-from-pandora-straightaway/"><u>Best No-Cost Tools to Save Tracks Downloaded From Pandora Straightaway!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/find-out-if-your-pc-is-a-win11-ready-machine/"><u>Find Out if Your PC Is a Win11-Ready Machine</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-get-minecraft-lan-parties-up-and-running-again/"><u>How to Get Minecraft LAN Parties Up and Running Again</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-nokia-130-music-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Nokia 130 Music in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Why cant I install the ipogo On Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/voice-privacy-settings-for-console-gamers/"><u>Voice Privacy Settings for Console Gamers</u></a></li>
-<li><a href="https://solve-news.techidaily.com/aacmp4/"><u>スムーズなAACからMP4へ: 音楽データを最新技術で変換方法</u></a></li>
-<li><a href="https://solve-news.techidaily.com/44ov44kh44oz44k25lik44gn44gu5pig5yop44oa44km44oz44ot44o844oj44go5lplusd6k235pa55rov77ya44ks44kk44oj44ow44od44kv/"><u>ファンザ上での映像ダウンロードと保護方法：ガイドブック</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-9-youtube-video-extraction-tools-for-android-reviewed/"><u>[New] 2024 Approved 9 YouTube Video Extraction Tools for Android Reviewed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-optimizing-video-posts-with-flawless-srt-file-integration-tactics/"><u>2024 Approved Optimizing Video Posts with Flawless SRT File Integration Tactics</u></a></li>
+<li><a href="https://solve-news.techidaily.com/converteren-van-mode-naar-wmv-vrije-en-gratis-service-online-movavi/"><u>Converteren Van MODE Naar WMV - Vrije en Gratis Service Online - Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/free-online-conversion-change-wav-files-to-flv-format-with-ease-movevi/"><u>Free Online Conversion: Change WAV Files to FLV Format with Ease - Movevi</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-realme-11-proplus-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Realme 11 Pro+ Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-motorola-moto-g73-5g-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Motorola Moto G73 5G</u></a></li>
+<li><a href="https://solve-news.techidaily.com/move-to-wavmp3-web-based-flac-converter-gratis-by-movavi/"><u>Move to WAV/MP3 Web-Based FLAC Converter - Gratis by Movavi</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-rated-windows-11-performance-analysis-essential-viewing-in-depth-desktop-and-mobile-appraisals/"><u>Top Rated Windows 11 Performance Analysis | Essential Viewing: In-Depth Desktop and Mobile Appraisals</u></a></li>
 </ul></div>
 

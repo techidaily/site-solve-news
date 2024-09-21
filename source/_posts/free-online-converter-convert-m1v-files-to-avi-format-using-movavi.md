@@ -1,7 +1,7 @@
 ---
 title: Free Online Converter - Convert M1V Files to AVI Format Using Movavi
-date: 2024-09-11T11:42:42.850Z
-updated: 2024-09-16T03:14:35.489Z
+date: 2024-09-18T16:05:31.738Z
+updated: 2024-09-21T16:00:42.349Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/72f5184d5296c1cbee8c85039f08d18862c38c7bcca88e3aaa3f5eb78673eb91.png
@@ -228,6 +228,13 @@ Utiliser le mode de jeu Windows 10
 
 ![](https://cdn.staticont.net/default/0012/47/d22e37788bfd390747dc00a19758815599d522df.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Voici un moyen simple et rapide d'optimiser Windows 10 pour les jeux en utilisant un outil intégré au système. Le mode Jeu, apparu dans les versions les plus récentes du système d'exploitation, est conçu pour améliorer l'expérience de jeu en consacrant davantage de ressources système aux jeux. Il empêche également d'autres programmes, tels que Windows Update, d'accaparer les ressources du système pendant que vous jouez.
 
 Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** \+ **I**, tapez "mode jeu" dans la boîte de recherche et cliquez sur **Contrôler le mode jeu pour optimiser votre PC pour les jeux**.
@@ -235,6 +242,13 @@ Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** 
 Dans le menu qui s'ouvre, cliquez sur **Mode Jeu**. Passez à **On** pour activer le Game Mode. Si votre PC prend en charge le Mode Jeu, le système optimisera les performances de votre PC pour les jeux.
 
 Si vous ne trouvez pas ces paramètres, cela signifie que la dernière Windows Creators Update n'est pas installée sur votre PC.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Gérez vos heures actives
 
@@ -253,13 +267,6 @@ Pour définir vos heures actives, appuyez sur la   **touche Windows** \+ **I**, 
 Si vous êtes un joueur de nuit ou si vos heures de sommeil varient considérablement, de sorte que vous ne pouvez pas définir une heure de repos spécifique, nous vous conseillons (en plus de changer vos habitudes de sommeil) de vous assurer que Windows vous rappelle chaque fois qu'il voudra redémarrer afin que, si cela se produit pendant que vous jouez, vous puissiez toujours le retarder.
 
 Pour ce faire, retournez à Windows Update, cliquez sur **Advanced options** et assurez-vous que l'interrupteur sous **We'll show a reminder when we're going to restart** est activé.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Réglez les paramètres de vos effets visuels
 
@@ -286,10 +293,10 @@ Par ailleurs, les jeux sur Steam sont mis à jour en permanence et il arrive sou
 Pour ramener la version d'un jeu à celle dont vous avez besoin, ouvrez Steam, faites un clic droit sur le jeu, choisissez **Propriétés** et allez dans l'onglet **Bêta**. Choisissez la version souhaitée dans le menu déroulant.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Désactiver les notifications
@@ -300,13 +307,6 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 2. Tapez "Notifications" dans la barre de recherche et sélectionnez **Notifications et paramètres d'actions** dans les résultats.
 3. Lorsque la nouvelle fenêtre s'ouvre, mettez le commutateur à bascule situé à côté de l'option **Obtenir des notifications d'applications et d'autres expéditeurs** sur **Désactivé**. Vos notifications sont maintenant désactivées.
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Régler le panneau de contrôle NVIDIA
 
@@ -327,13 +327,6 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 2. Augmentez vos performances graphiques en utilisant l'overclocking. Pour ce faire, cliquez sur l'onglet **Performance**, puis sur **Tuning**, sélectionnez **Automatique**, et enfin **GPU Overclocked**.
 3. Si vous utilisez une carte AMD, vous n'avez pas besoin de MSI Afterburner pour contrôler les performances. Il vous suffit d'appuyer sur **Ctrl** \+ **Shift** \+ **O** pour que vos statistiques apparaissent dans le jeu.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Réduire la résolution dans un jeu
 
 Cette solution entre facilement dans la catégorie des "solutions rapides". Parfois, votre système ne peut tout simplement pas gérer un jeu, et vous n'avez pas le temps de chercher des solutions à plus long terme. Allez dans les paramètres système du jeu et réduisez la résolution d'un niveau. Surveillez ensuite votre FPS jusqu'à ce que les choses s'améliorent.
@@ -351,6 +344,13 @@ Vous pouvez également modifier le curseur de la vitesse du pointeur pour créer
 Comment améliorer les performances de jeu sur Windows 10 (corrections avancées)
 
 ![](https://cdn.staticont.net/pages/0013/24/72b5f58442a79243cce53c3224e26755b436a620.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
 
@@ -379,13 +379,6 @@ La mise à niveau de votre RAM n'aura pas un effet aussi important que la mise �
 De nombreux jeux requièrent une mémoire vive de 8 Go, mais ce chiffre augmente régulièrement, car les titres les plus récents recommandent une mémoire vive de 12 Go. 
 
 Si vous voulez rester en tête de la courbe, 16 Go suffiront pour l'instant. Mais si vous voulez utiliser des services de streaming en arrière-plan comme Twitch, Discord et YouTube, vous devrez passer à 32 Go pour pouvoir tout faire fonctionner sans problème.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Désactiver l'algorithme de Nagle
 
@@ -454,6 +447,13 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 2. Pour la ventilation, essayez de surélever votre ordinateur portable ou utilisez un bureau conçu pour les ordinateurs portables.
 3. Réglez les paramètres de vos ventilateurs pour qu'ils ne soient pas trop sollicités.
 4. Si vous le pouvez, jouez sur votre ordinateur portable dans un environnement frais.
+
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mettez à niveau votre GPU et votre RAM
 
@@ -580,14 +580,18 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-harness-the-potential-of-iphone-burst-photography/"><u>[New] Harness the Potential of iPhone Burst Photography</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1726028510421-powerpoint/"><u>「PowerPointプレゼンテーションの自動発話録音手順」</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1-free-tutorial-applying-filters-to-videos-step-by-step-guide/"><u>1. Free Tutorial: Applying Filters to Videos - Step-by-Step Guide</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-dive-into-virtual-realities-with-up-to-date-android-tips/"><u>2024 Approved Dive Into Virtual Realities with Up-to-Date Android Tips</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-superior-tools-for-group-online-calls/"><u>2024 Approved Superior Tools for Group Online Calls</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1726028276679-capcutpc/"><u>CapCutによる音削除:PC版動画から音声抽出方法</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-fix-a-broken-or-unresponsive-turtle-beach-elite-atlas-microphone/"><u>How to Fix a Broken or Unresponsive Turtle Beach Elite Atlas Microphone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-honor-100-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Honor 100 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://solve-news.techidaily.com/windows-10-mkv3/"><u>Windows 10向け MKVファイル再生に困ったときの解決策トップ3</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels/"><u>[New] 2024 Approved Green Screen Mastery Essential Free Lessons From YouTube's Best 4 Channels</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-innovative-methods-for-time-loop-illusions-for-2024/"><u>[New] Innovative Methods for Time Loop Illusions for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-discover-top-rated-xbox-extra-gb-drives/"><u>[Updated] Discover Top-Rated Xbox Extra GB Drives</u></a></li>
+<li><a href="https://solve-news.techidaily.com/12-effective-methods-for-capturing-screenshots-on-your-hp-device-with-movavi-a-step-by-step-guide/"><u>12 Effective Methods for Capturing Screenshots on Your HP Device with Movavi - A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-a-lifetime-love-affair-with-top-15-classic-stop-motion-movies/"><u>2024 Approved A Lifetime Love Affair with Top 15 Classic Stop-Motion Movies</u></a></li>
+<li><a href="https://solve-news.techidaily.com/guia-completa-para-convertir-wmv-video-a-webm-gratuito-por-internet-usando-herramientas-simples/"><u>Guía Completa Para Convertir WMV Video a WEBM Gratuito Por Internet Usando Herramientas Simples</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-dvd-production-modern-techniques-for-mac-users/"><u>In 2024, Innovative DVD Production Modern Techniques for Mac Users</u></a></li>
+<li><a href="https://solve-news.techidaily.com/installare-il-convertitore-italiano-di-video-movavi-senza-costi-codici-chiave-activation-inclusi/"><u>Installare Il Convertitore Italiano Di Video Movavi Senza Costi - Codici Chiave Activation Inclusi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/navigare-tra-politica-di-spedizione-e-processo-di-resi-su-movavi-guida-completa/"><u>Navigare Tra Politica Di Spedizione E Processo Di Resi Su Movavi: Guida Completa</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-5-methoder-for-att-upplagga-foto-med-bilder-movavi/"><u>TOP 5 Methoder För Att Upplägga Foto Med Bilder - Movavi</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/transform-your-photos-into-high-definition-wonders-mastering-4k-8k-and-10k-with-winxvideo-ai-solutions/"><u>Transform Your Photos Into High Definition Wonders: Mastering 4K, 8K, and 10K with Winxvideo AI Solutions</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/why-the-netgear-nighthawk-x10-ad7200-is-a-game-changer-for-high-speed-internet-enthusiasts-a-comprehensive-review/"><u>Why the Netgear Nighthawk X10 AD7200 Is a Game-Changer for High-Speed Internet Enthusiasts: A Comprehensive Review</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/windows-10-dvd-cprm/"><u>Windows 10対応 DVD CPRM解除自由プログラム - 最適推薦</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From NEF to JPG: Expert Conversion Using Top RAW Processors - Photo Editing Guide for Professionals"
-date: 2024-09-13T04:42:37.277Z
-updated: 2024-09-16T11:52:01.162Z
+date: 2024-09-19T16:02:26.314Z
+updated: 2024-09-21T16:12:52.328Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/c3853b005ad6636456539b898eb59cf75f875d556870e0b3c55b58ed003b40eb.jpg
@@ -182,13 +182,6 @@ Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
 
 ### Régler les paramètres graphiques d'un jeu
@@ -235,6 +228,13 @@ Utiliser le mode de jeu Windows 10
 
 ![](https://cdn.staticont.net/default/0012/47/d22e37788bfd390747dc00a19758815599d522df.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Voici un moyen simple et rapide d'optimiser Windows 10 pour les jeux en utilisant un outil intégré au système. Le mode Jeu, apparu dans les versions les plus récentes du système d'exploitation, est conçu pour améliorer l'expérience de jeu en consacrant davantage de ressources système aux jeux. Il empêche également d'autres programmes, tels que Windows Update, d'accaparer les ressources du système pendant que vous jouez.
 
 Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** \+ **I**, tapez "mode jeu" dans la boîte de recherche et cliquez sur **Contrôler le mode jeu pour optimiser votre PC pour les jeux**.
@@ -243,22 +243,16 @@ Dans le menu qui s'ouvre, cliquez sur **Mode Jeu**. Passez à **On** pour active
 
 Si vous ne trouvez pas ces paramètres, cela signifie que la dernière Windows Creators Update n'est pas installée sur votre PC.
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Gérez vos heures actives
 
 ![](https://cdn.staticont.net/pages/0012/47/719892cfb3ccc9e05c269dd850ef3c6c37589035.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Oui, Windows 10 peut installer des mises à jour et redémarrer votre ordinateur en plein milieu de votre session de jeu sans même un simple "excusez-moi". Ouch. Cela peut être décevant, c'est le moins que l'on puisse dire, surtout si vous êtes un joueur compétitif et que votre sortie non planifiée peut affecter vos coéquipiers ou votre classement.
 
@@ -326,22 +320,16 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 2. Augmentez vos performances graphiques en utilisant l'overclocking. Pour ce faire, cliquez sur l'onglet **Performance**, puis sur **Tuning**, sélectionnez **Automatique**, et enfin **GPU Overclocked**.
 3. Si vous utilisez une carte AMD, vous n'avez pas besoin de MSI Afterburner pour contrôler les performances. Il vous suffit d'appuyer sur **Ctrl** \+ **Shift** \+ **O** pour que vos statistiques apparaissent dans le jeu.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Réduire la résolution dans un jeu
 
 Cette solution entre facilement dans la catégorie des "solutions rapides". Parfois, votre système ne peut tout simplement pas gérer un jeu, et vous n'avez pas le temps de chercher des solutions à plus long terme. Allez dans les paramètres système du jeu et réduisez la résolution d'un niveau. Surveillez ensuite votre FPS jusqu'à ce que les choses s'améliorent.
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Désactiver l'accélération de la souris
 
@@ -444,13 +432,6 @@ Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordin
 
 Pour modifier votre plan d'alimentation, cliquez sur la   **touche Windows** \+ **I**, tapez "alimentation" dans la zone de recherche, choisissez **Paramètres d'alimentation et de veille**, puis **Paramètres d'alimentation supplémentaires**. Si vous ne voyez pas de plan d'alimentation haute performance dans la partie gauche de l'écran, cliquez sur **Créer un plan d'alimentation** et choisissez **Haute performance**.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Empêchez votre ordinateur portable de surchauffer
 
 Les ordinateurs portables sont réputés pour leur surchauffe, car tous les composants sont serrés dans le châssis et l'air circule peu. En cas de surchauffe, le système ralentit et les performances de jeu aussi. Utilisez ces conseils de prévention :
@@ -508,6 +489,13 @@ L'article ci-dessus énumère une série de mesures que vous pouvez prendre pour
 * Mettez à niveau votre GPU et/ou votre CPU
 * Vérifiez les paramètres de performance de votre Windows.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Qu'est-ce qui ralentit mon ordinateur ?
 
 Il y a une longue liste de choses qui pourraient ralentir votre ordinateur. Voici une liste de raisons que vous pouvez vérifier :
@@ -519,10 +507,10 @@ Il y a une longue liste de choses qui pourraient ralentir votre ordinateur. Voic
 5. Le système fonctionne avec des paramètres de performance inférieurs pour économiser la batterie.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Comment faire fonctionner un ordinateur plus rapidement ?
@@ -592,19 +580,20 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2023-how-to-share-twitter-videos-on-facebook/"><u>[New] 2023 | How to Share Twitter Videos on Facebook?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-best-10-shopping-sites-to-customize-your-gift-boxes/"><u>[Updated] 2024 Approved Best 10 Shopping Sites to Customize Your Gift Boxes</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-avoiding-miscommunication-on-google-meet-best-practices/"><u>[Updated] In 2024, Avoiding Miscommunication on Google Meet Best Practices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-simplify-your-life-with-time-lapsing-on-samsung-gear-for-2024/"><u>[Updated] Simplify Your Life with Time-Lapsing on Samsung Gear for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-a-detailed-step-by-step-guide-to-using-telegram-desktop/"><u>2024 Approved A Detailed Step-By-Step Guide To Using Telegram Desktop</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-the-top-5-resources-for-innovative-text-designs/"><u>2024 Approved Explore the Top 5 Resources for Innovative Text Designs</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/exploring-essential-screen-recording-software-for-educators-for-2024/"><u>Exploring Essential Screen Recording Software for Educators for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-all-about-apple-iphone-13-unlock-chip-you-need-to-know-by-drfone-ios/"><u>In 2024, All About Apple iPhone 13 Unlock Chip You Need to Know</u></a></li>
-<li><a href="https://solve-news.techidaily.com/step-by-step-tutorial-for-sharing-animated-gifs-on-instagram-across-pc-and-smartphone-platforms/"><u>Step-by-Step Tutorial for Sharing Animated GIFs on Instagram Across PC and Smartphone Platforms</u></a></li>
-<li><a href="https://solve-news.techidaily.com/top-3-no-cost-m2ts-video-players-effortless-streaming-of-m2ts-files/"><u>Top 3 No-Cost M2TS Video Players: Effortless Streaming of M2TS Files</u></a></li>
-<li><a href="https://solve-news.techidaily.com/top-5-free-xvid-conversion-tools-for-windows-mac-and-web-users/"><u>Top 5 Free Xvid Conversion Tools for Windows, Mac & Web Users</u></a></li>
-<li><a href="https://solve-news.techidaily.com/tutorial-how-to-swap-out-audio-tracks-for-vids-on-any-platform-from-desktop-to-cloud/"><u>Tutorial: How to Swap Out Audio Tracks for Vids on Any Platform – From Desktop to Cloud</u></a></li>
-<li><a href="https://solve-news.techidaily.com/windows-11-clipchamp/"><u>Windows 11 ClipChampで圧縮なしでビデオ編集 - キャプチャ無料</u></a></li>
-<li><a href="https://solve-news.techidaily.com/wmaxperia/"><u>WMA形式の曲をXperia端末で再生するための詳しい対処マニュアル</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-dive-into-the-ultimate-world-of-iphone-vr/"><u>[New] Dive Into the Ultimate World of iPhone VR</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-tape-to-trending-seamless-mp3-to-youtube-transition/"><u>[Updated] In 2024, From Tape to Trending Seamless MP3 to YouTube Transition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-power-of-hashtags-social-media-promotion-on-a-budget/"><u>[Updated] The Power of Hashtags Social Media Promotion on a Budget</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-unlock-iphone-13-pro-without-passcode-or-face-id-by-drfone-ios/"><u>3 Ways to Unlock iPhone 13 Pro without Passcode or Face ID</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1726226857495-movaviavi/"><u>電腦用Movavi線上免付費Avi檔案交換工具</u></a></li>
+<li><a href="https://solve-news.techidaily.com/conversion-amv-en-avi-sans-frais-utiliser-le-service-online-de-movavi/"><u>Conversion Amv en Avi Sans Frais : Utiliser Le Service Online De Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/discover-the-ultimate-7-image-sniping-solutions-on-your-mac-device-expert-rankings-and-reviews/"><u>Discover the Ultimate 7 Image Sniping Solutions on Your Mac Device: Expert Rankings and Reviews</u></a></li>
+<li><a href="https://article-helps.techidaily.com/elevate-your-alerts-a-comprehensive-look-at-customizing-ringtone-and-sound-settings-on-android-for-2024/"><u>Elevate Your Alerts A Comprehensive Look at Customizing Ringtone & Sound Settings on Android for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-tecno-spark-10c-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Tecno Spark 10C to PC? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-motorola-moto-g-stylus-2023-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Motorola Moto G Stylus (2023) Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-the-best-youtube-equipment-what-you-need-to-start-your-channel/"><u>In 2024, The Best YouTube Equipment What You Need to Start Your Channel</u></a></li>
+<li><a href="https://solve-news.techidaily.com/metamorphose-gratuite-de-fichier-flv-en-format-3gp-sur-internet-decouvrez-les-services-de-movaflip/"><u>Métamorphose Gratuite De Fichier FLV en Format 3GP Sur Internet - Découvrez Les Services De MovaFlip</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mp3-file-creation-from-dts-archives-cost-free-digital-tools-and-techniques/"><u>MP3 File Creation From DTS Archives - Cost-Free Digital Tools and Techniques</u></a></li>
+<li><a href="https://solve-news.techidaily.com/topo-12-melhores-plugins-de-gravacao-de-tela-para-o-navegador-chrome/"><u>Topo 12 Melhores Plugins De Gravação De Tela Para O Navegador Chrome</u></a></li>
+<li><a href="https://solve-news.techidaily.com/trasforma-i-tuoi-video-voc-in-mp4-senza-costo-con-movavi-conversione-online-gratuita/"><u>Trasforma I Tuoi Video VOC in MP4 Senza Costo Con Movavi - Conversione OnLine Gratuita</u></a></li>
 </ul></div>
 
