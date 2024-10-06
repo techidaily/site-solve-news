@@ -1,63 +1,21 @@
 ---
 title: "Cookiebot: The Secret Ingredient Behind Smart Marketing Solutions"
-date: 2024-09-10T09:58:43.817Z
-updated: 2024-09-11T09:58:43.817Z
+date: 2024-09-30T22:20:42.411Z
+updated: 2024-10-06T04:51:58.749Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33f7a6674447c8f7173ff1c687707de6ab2b192d47bf8afae9f7fe02b3355e59.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Cookiebot: The Secret Ingredient Behind Smart Marketing Solutions
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Les solutions M-Files intègrent la technologie d’intelligence artificielle d’ABBYY pour automatiser la gestion de l’information
 
 20 juin 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### _M-Files, acteur majeur dans la conception de solutions intelligentes enrichit sa plateforme avec la technologie d’intelligence artificielle ABBYY pour la classification automatique des documents et autres supports d’information_
 
@@ -110,8 +68,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -119,4 +75,28 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-discover-the-secret-to-character-customization-vocal-variety-in-free-fire/"><u>[Updated] 2024 Approved Discover the Secret to Character Customization Vocal Variety in Free Fire</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/iuaunew9sewplusjoikhplusijvewfieeinzrln7rmnkzmlrnms5xlj4rmnidmlrdmiodoozplsi7lvjui/"><u>攝影後複製光碟:基本方法及最新技術導引</u></a></li>
+<li><a href="https://solve-news.techidaily.com/free-online-conversion-of-mov-files-to-3gp-easy-with-movavi/"><u>Free Online Conversion of MOV Files to 3GP - Easy with Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/gratuitamente-ottimizzato-come-converti-i-file-3gpp-online-con-lesperto-di-movavi/"><u>Gratuitamente Ottimizzato: Come Converti I File 3GPP Online Con L'Esperto Di Movavi</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-ztewithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on ZTEwith/without a PC</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-plus-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6 Plus with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premium-panzoid-structure-packs/"><u>In 2024, Premium Panzoid Structure Packs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-the-art-of-fixing-broken-system-components-and-registry-issues-in-windows-1011/"><u>Mastering the Art of Fixing Broken System Components and Registry Issues in Windows 10/11</u></a></li>
+<li><a href="https://solve-news.techidaily.com/os-melhores-enderecos-de-streaming-de-desenhos-animados-selecao-das-dez-mais-populares/"><u>Os Melhores Endereços De Streaming De Desenhos Animados - Seleção Das Dez Mais Populares</u></a></li>
+<li><a href="https://win-able.techidaily.com/phasmophobia-vr-malfunction-heres-how-you-can-repair-it/"><u>Phasmophobia VR Malfunction? Here's How You Can Repair It!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/scopri-i-migliori-software-video-editing-freeware-e-nocciolini-descritti-in-questo-articolo-per-gli-utenti-da-diciotto-anni/"><u>Scopri I Migliori Software Video Editing Freeware E Nocciolini, Descritti in Questo Articolo per Gli Utenti Da Diciotto Anni.</u></a></li>
+<li><a href="https://some-skills.techidaily.com/triumph-through-film-the-top-10-motivating-titles-for-2024/"><u>Triumph Through Film The Top 10 Motivating Titles for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1726225244632-mpeg-movavi/"><u>オンラインで使いやすくて安価なMPEGファイルをリアルタイム変換: Movavi</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

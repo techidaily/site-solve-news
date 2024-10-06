@@ -1,43 +1,15 @@
 ---
 title: Intelligente Lösungen Für Die Zukunft Von Dokumentenmanagement Und -Erfassung
-date: 2024-09-10T09:58:44.025Z
-updated: 2024-09-11T09:58:44.025Z
+date: 2024-10-04T21:11:22.050Z
+updated: 2024-10-05T20:48:29.367Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7ba232e21fac78d0bae0e04300e47bac8679a7f9cd2328362771972e45a8c12a.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Intelligente Lösungen Für Die Zukunft Von Dokumentenmanagement Und -Erfassung
 
 [Zurück zu ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## IDP ist tot, es lebe IDP!
 
@@ -47,71 +19,31 @@ January 18, 2023
 
 „IDP ist tot, es lebe IDP“ – ein Satz, der das Gefühl von Wandel und Kontinuität widerspiegelt. Wie in der historischen Proklamation „Der König ist tot, es lebe der König“ erleben wir einen entscheidenden Moment im Bereich der intelligenten Dokumentenverarbeitung (IDP). Dies ist nicht das Ende, es ist eine Wiedergeburt, eine Metamorphose in etwas, das für die Zukunft der künstlichen Intelligenz (KI) noch mächtiger und bedeutender ist.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Die Entwicklung der intelligenten Dokumentenverarbeitung (IDP)
 
 Im Zentrum dieses Wandels steht eine Technologie, die wir schon seit Jahrzehnten kennen – die optische Zeichenerkennung (OCR). Einst ein einfaches Werkzeug zur Digitalisierung von Text, spielt OCR heute eine entscheidende Rolle beim Training großer Sprachmodelle (LLM) mit hochwertigen Daten. Diese Entwicklung von einem einfachen Textkonvertierungstool zu einem hochentwickelten Datenlieferanten verdeutlicht die Anpassungsfähigkeit und die anhaltende Relevanz von IDP-Technologien. Die alte IDP ebnet den Weg für eine neue Ära, in der Präzision und Kontext von größter Bedeutung sind.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Anwendungen und Herausforderungen der realen Welt
 
 Bei der heutigen [OCR](https://tools.techidaily.com/abbyy/products/) geht es nicht nur darum, Texte zu lesen, sondern sie in ihrer Gesamtheit zu verstehen. Unternehmen verlangen nach höherer Genauigkeit und tieferen Dateneinblicken, was fortschrittlichere und differenziertere IDP-Technologien erforderlich macht. Diese Entwicklung ist jedoch nicht ohne Herausforderungen. Das Gleichgewicht zwischen Genauigkeit und kontextuellem Verständnis ist entscheidend. Wie stellen wir sicher, dass die in KI-Systeme eingespeisten Daten nicht nur korrekt, sondern auch kontextbezogen relevant sind?
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Die Zukunft der intelligenten Dokumentenverarbeitung (IDP)
 
 Die Zukunft der IDP liegt in ihrer Fähigkeit, sich nicht nur weiterzuentwickeln, sondern die Art und Weise, wie wir über Daten und KI denken, zu revolutionieren. Es geht darum, Systeme zu schaffen, die Dokumente nicht nur verarbeiten, sondern sie auch verstehen und nicht nur Daten, sondern auch Erkenntnisse gewinnen. Diese neue IDP wird der Eckpfeiler in der sich ständig weiterentwickelnden KI-Landschaft sein, eine entscheidende Komponente beim Aufbau intelligenterer, effizienterer und intuitiverer Systeme. 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Das Innenleben einer modernen IDP
 
@@ -153,6 +85,13 @@ Beim Trainingsprozess wird das LLM großen Datenmengen ausgesetzt, damit es lern
 
 Nach dem Training wird das LLM einer strengen Prüfung und Validierung unterzogen. Dazu gehört die Überprüfung der Fähigkeit, Sprache in verschiedenen Bereichen, Stilen und Formaten zu verstehen und zu erzeugen. Die Rückmeldungen aus dieser Phase fließen in den Trainingskreislauf ein und verfeinern die Fähigkeiten des LLM weiter.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Anbruch einer neuen Ära
 
 Die Aussage „IDP ist tot, es lebe IDP“ ist kein Widerspruch, sondern ein Beweis für die Widerstandsfähigkeit und Weiterentwicklung dieser Technologie. Was wir als IDP kannten, hat sich gewandelt, und an seine Stelle ist ein fortschrittlicherer, integralerer Teil des KI-Ökosystems getreten. Es ist eine aufregende Zeit, Teil dieser Reise zu sein und den Anbruch einer neuen Ära der intelligenten Dokumentenverarbeitung und der künstlichen Intelligenz mitzuerleben. 
@@ -163,25 +102,18 @@ Erfahren Sie, warum ABBYY zum vierten Mal in Folge zum IDP-Marktführer ernannt 
 
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982462">
+<span id="1983588">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Maxime Vermeir
 
@@ -241,8 +173,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -250,4 +180,22 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mi-11-tech-specs-unveiled-with-advanced-screen-capture-for-2024/"><u>[New] Mi 11 Tech Specs Unveiled with Advanced Screen Capture for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-nostalgic-shots-iphone-x-retro-photo-session/"><u>2024 Approved Nostalgic Shots IPhone X Retro Photo Session</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-steps-to-uncover-youtubes-central-editing-nexus/"><u>2024 Approved Steps to Uncover YouTube’s Central Editing Nexus</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-idp-global-trend/"><u>ABBYY IDP Global Trend 分析と成功事例について</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-prasentiert-intelligente-echtzeitfahige-losungen-auf-der-mwc-2019/"><u>ABBYY Präsentiert Intelligente, Echtzeitfähige Lösungen Auf Der MWC 2019</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-proof-of-identity/"><u>ABBYY Proof of Identity - 初版オンライン身分確認ソリューションを発表します</u></a></li>
+<li><a href="https://solve-news.techidaily.com/automated-with-crawling-bots-enhance-your-websites-visibility/"><u>Automated with Crawling Bots: Enhance Your Website's Visibility</u></a></li>
+<li><a href="https://solve-news.techidaily.com/beginners-guide-mastering-the-basics-of-retrieval-augmented-generation/"><u>Beginner's Guide: Mastering the Basics of Retrieval Augmented Generation</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-conversions-using-our-cutting-edge-cookiebot-analytics-system/"><u>Boost Conversions Using Our Cutting-Edge Cookiebot Analytics System</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-site-interaction-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Boost Site Interaction with the Advanced Capabilities of Cookiebot Technology</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/guiding-principles-for-hiring-high-caliber-film-makers/"><u>Guiding Principles for Hiring High-Caliber Film Makers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-wps-file-online-with-digisigner-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Sign .wps file Online with DigiSigner</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unmasking-instagrams-unnoticed-capabilities/"><u>In 2024, Unmasking Instagram’s Unnoticed Capabilities</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/roku-face-off-how-does-the-express-edition-stack-up-against-the-classic-stick/"><u>Roku Face-Off: How Does the Express Edition Stack Up Against the Classic Stick?</u></a></li>
+</ul></div>
 

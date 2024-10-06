@@ -1,25 +1,11 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Site's Performance with Expert Automation"
-date: 2024-09-10T09:58:43.788Z
-updated: 2024-09-11T09:58:43.788Z
+date: 2024-10-02T01:08:34.291Z
+updated: 2024-10-05T20:55:43.735Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5279af7c39b88fd4998fb7b9c2ae678e663ed77151996f75dc42960cd65686db.jpg
 ---
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Cookiebot-Enhanced: Boost Your Site's Performance with Expert Automation
 
@@ -32,20 +18,6 @@ thumbnail: https://thmb.techidaily.com/5279af7c39b88fd4998fb7b9c2ae678e663ed7715
 August 28, 2023
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/idp-scheme-848x444-b-fr.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Bien qu’il paraisse totalement moderne (et il l’est), le traitement intelligent des documents (IDP) remonte au développement des premières solutions d’OCR (reconnaissance optique de caractères), qui faisaient déjà un peu plus que convertir les caractères sur les images en texte codé par une machine. Aujourd’hui, le traitement intelligent des documents est doté de fonctionnalités basées sur l’intelligence artificielle qui permettent de traiter tout type de données tirées de tout type de documents — structurés, semi-structurés et non structurés — pour à peu près n’importe quel processus dans n’importe quel secteur d’activité. Ce blog explore les questions que vous posez le plus fréquemment sur le traitement intelligent des documents, y compris sur son fonctionnement, avec des exemples d’utilisation, pour vous donner un aperçu de la façon dont vous pouvez tirer le meilleur de l’IDP pour transformer votre entreprise. 
 
@@ -78,36 +50,22 @@ Pour comprendre ce qu’est l’IDP et comment il profite aux entreprises, il es
 * **L’IDP n’est pas la RPA (robotic process automation).**  La RPA consiste en une automatisation de base des tâches au sein de processus définis qui reposent sur les données. Le contenu étant une source de ces données, il est essentiel de contextualiser ce contenu avant d’en extraire les données pour différents processus en aval. La [RPA](https://tools.techidaily.com/abbyy/products/) ne peut le faire seule et il faut donc l’appui de l’IDP pour prendre des décisions pertinentes sur le contenu.
 * **L’IDP n’est pas la même chose que ChatGPT.** De nombreuses personnes pensent que ChatGPT est la même chose que l’OCR (reconnaissance optique de caractères), mais ce n’est pas le cas ; en fait, il s’agit d’un modèle de traitement du langage naturel (NLP) qui utilise des algorithmes de deep learning pour générer, sous forme de texte ressemblant à du texte rédigé par un humain, des réponses aux demandes des utilisateurs. ABBYY Vantage, pour sa part, est une [solution d’IDP](https://tools.techidaily.com/abbyy/products/) qui utilise la technologie OCR pour extraire les données de différents types de documents, y compris les [factures](https://tools.techidaily.com/abbyy/products/), les bons de commandes, les contrats, et plus encore.  
 
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## L’évolution de l’IDP  
     
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics-fr.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Comment fonctionne le traitement intelligent des documents ? 
 
@@ -117,19 +75,12 @@ L’IDP utilise des techniques de traitement du langage naturel (NLP) et de cont
 
 Grâce au [FastML](https://tools.techidaily.com/abbyy/products/), nouveau mécanisme d’apprentissage côté client, des méthodes visuelles et textuelles d’extraction sont appliquées, ce qui permet d’atteindre une plus grande précision dans l’extraction des données. Les entreprises qui cherchent à garder un avantage concurrentiel peuvent le faire en laissant de côté la charge de travail fastidieuse, transactionnelle et avec beaucoup de contenu, au profit du traitement intelligent des documents et de solutions intelligentes d’automatisation. Cela dégage du temps pour les salariés qui peuvent alors se consacrer à des tâches plus gratifiantes et offrir une meilleure expérience client.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Quels sont les avantages du traitement intelligent des documents ? 
 
@@ -141,6 +92,13 @@ Dans tous les secteurs d’activité, les entreprises subissent la pression de d
 * **Adaptabilité :** l’IDP est ajustable et transverse : un logiciel d’IDP peut être formé pour traiter un type de document (par exemple : les factures) et traiter seulement 100 documents par jour, de même qu’il peut être formé pour traiter une centaine de types différents de documents (factures, demandes, relevés bancaires, inscriptions, reçus, etc.) et traiter des milliers de documents par minute.
 
 **[Related content: Contenu associé : Automatisation intelligente – rapport sur les leviers et les points faibles de l’onboarding client](https://tools.techidaily.com/abbyy/products/)**
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Comment l’association du process mining & de l’IDP permet de dégager plus de valeur ? 
 
@@ -156,20 +114,6 @@ Servant de base à une automatisation réussie, le [process mining](https://tool
 * Obtenir des informations sur la façon dont le contenu sert de base à une prise de décision éclairée au sein du processus ;
 * Déterminer ce qu’elles doivent faire du contenu pour que le processus fonctionne mieux ; et
 * Appliquer les compétences de document nécessaires pour optimiser le traitement du contenu.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Exemples d’utilisation de l’IDP : maîtrisez de façon numérique vos données et processus 
 
@@ -201,6 +145,13 @@ L’entreprise allemande internationale de [logistique](https://tools.techidaily
 
 Cette entreprise, qui a généré 100 milliards USD en 2022, avait précédemment un système de comptabilité très manuel pour traiter des centaines de milliers de factures chaque année. En mettant en place le traitement intelligent des documents ABBYY, elle a pu traiter automatiquement les factures de 124 fournisseurs, dans différentes langues — réduisant ainsi les erreurs et gagnant en productivité. Le groupe a ensuite étendu ce projet d’automatisation via l’IDP à d’autres départements pour profiter d’une augmentation incroyable de 70% de son efficience. 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Comment choisir le bon logiciel de traitement intelligent des documents 
 
 Avec tellement de bruit autour de l’intelligence artificielle et un paysage technologique en constante évolution, choisir le bon logiciel de traitement intelligent des documents est une décision capitale pour vous assurer d’être sur les bons rails, pour une transformation numérique optimale de vos processus métier. Voici quelques points essentiels à prendre en compte. 
@@ -225,6 +176,13 @@ Avec [Vantage](https://tools.techidaily.com/abbyy/products/), il est possible de
 #### Prêts à accélérer votre transformation numérique et à changer la façon dont vous automatisez le traitement de vos documents ? 
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Foire aux questions 
 
@@ -262,26 +220,6 @@ _Note éditoriale : le post de ce blog a été initialement publié le 8 décemb
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Maxime Vermeir
 
 Directeur Senior de la stratégie IA 
@@ -289,20 +227,6 @@ Directeur Senior de la stratégie IA
 Ayant plus de 10 ans d’expérience dans ces produits et cette technologie, Maxime Vermeir est un professionnel entrepreneurial animé par la volonté farouche de créer une expérience client exceptionnelle. En tant que directeur, il a dirigé des équipes internationales de consultants en innovation, ainsi que des initiatives transformationnelles pour le compte de grandes entreprises. Le partage de sa connaissance des nouvelles technologies et de la façon dont elles peuvent générer plus de valeur-client est un élément essentiel du panel d’expertise de Maxime. C’est un conseiller de confiance et un leader d’opinion dans ce domaine ; il suscite l’intérêt du marché pour les technologies ABBYY. 
 
 Connectez-vous avec Max sur [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Like, share or repost
 
@@ -358,8 +282,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -367,4 +289,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-magix-acid-pro-unveiled-assessing-comparable-software-for-2024/"><u>[New] Magix ACID Pro Unveiled Assessing Comparable Software for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-premier-mp4-converter-for-smooth-fb-integration/"><u>[Updated] 2024 Approved Premier MP4 Converter for Smooth FB Integration</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-find-youtube-collaboration-partners/"><u>[Updated] How to Find YouTube Collaboration Partners?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-free-to-profit-reaching-the-new-500-sub-total/"><u>[Updated] In 2024, Free to Profit Reaching the New 500 Sub Total</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-premiere-mkv-player-suite-pcmobile/"><u>[Updated] In 2024, Premiere MKV Player Suite (PC/Mobile)</u></a></li>
+<li><a href="https://solve-news.techidaily.com/3gpp-mpeg-movavi/"><u>3GPP MPEG 변환을 위한 무료 온라인 도구 - Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/convert-aiff-audio-files-to-ogg-fast-and-reliable-online-service-at-no-cost/"><u>Convert AIFF Audio Files to Ogg - Fast and Reliable Online Service at No Cost</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/cracking-the-case-of-missing-ringtones-resolving-iphones-no-call-alert-problem/"><u>Cracking the Case of Missing Ringtones: Resolving iPhone's No-Call Alert Problem</u></a></li>
+<li><a href="https://solve-news.techidaily.com/det-bedste-med-dybdegaende-dvd-til-mp4-konvertere-i-pc-og-online-selvfolgelig-som-gifter-fra-movavi/"><u>Det Bedste Med Dybdegående DVD Til MP4 Konvertere I Pc Og Online, Selvfølgelig Som Gifter Fra Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/discover-the-ultimate-selection-of-free-video-downloader-apps-for-202n-ranked-and-reviewed/"><u>Discover the Ultimate Selection of Free Video Downloader Apps for 202N, Ranked and Reviewed!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-the-framework-of-massive-machine-learning/"><u>Exploring the Framework of Massive Machine Learning</u></a></li>
+<li><a href="https://solve-news.techidaily.com/guia-paso-a-paso-para-empezar-con-el-streaming-de-fortnite-en-windows-creadores-de-contenido/"><u>Guía Paso a Paso Para Empezar Con El Streaming De Fortnite en Windows - Creadores De Contenido</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-realme-12plus-5g-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Realme 12+ 5G Face Lock?</u></a></li>
+<li><a href="https://solve-news.techidaily.com/in-depth-look-at-bandicam-unveiling-costs-and-functionalities-through-movavis-lens/"><u>In-Depth Look at Bandicam : Unveiling Costs and Functionalities Through Movavi's Lens</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/livechat-capture-suite-fb-version-for-2024/"><u>LiveChat Capture Suite FB Version for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/move-to-wavmp3-web-based-flac-converter-gratis-by-movavi/"><u>Move to WAV/MP3 Web-Based FLAC Converter - Gratis by Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mp4-vs-wmv-explicado-sus-principales-varias-caracteristicas/"><u>MP4 Vs. WMV Explicado: Sus Principales Varias Características</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ifying-slide-creations-with-youtube-content-for-2024/"><u>Simplifying Slide Creations with YouTube Content for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transformer-votre-mp3-en-video-m4v-sans-frais-avec-le-service-en-ligne-de-movavi/"><u>Transformer Votre MP3 en Vidéo M4V Sans Frais Avec Le Service en Ligne De Movavi</u></a></li>
+</ul></div>
 

@@ -1,49 +1,15 @@
 ---
 title: Enhance Website Traffic with Cookiebot's Powerful Analytics Tools
-date: 2024-09-10T09:58:44.952Z
-updated: 2024-09-11T09:58:44.952Z
+date: 2024-10-04T18:51:08.626Z
+updated: 2024-10-05T19:41:23.535Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f596754b304b70bbb49c94051d7f942eb048636fc50a63ae9e11d57d284605d.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Enhance Website Traffic with Cookiebot's Powerful Analytics Tools
 
 [Back to The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Customer Point of View: Highs and Lows of the Intelligent Automation Journey
 
@@ -61,6 +27,13 @@ In our final webinar for Intelligent Automation Month, a series of digital event
 Joining us on the panel was Shanx Tripathi from [IBM Consulting](https://www.ibm.com/consulting) \- financial services sector, and Swaraj Padma, head of automation at international real estate and investment company [JLL](https://www.us.jll.com/), along with ABBYY’s own Senior VP of Product Marketing Bruce Orcutt.
 
 With [recent research by ABBYY](https://tools.techidaily.com/abbyy/products/) identifying “vague automation goals” as the top reason for automation projects to fail, I was keen to know how IT leaders determine where to start their automation journeys.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Knowing where to start
 
@@ -80,25 +53,12 @@ He discovered the industry average for onboarding was between 60 to 70 days with
 
 It’s not about taking an existing process and automating it, he said, but “reimagining what you were trying to do in that old process to begin with.”
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### The importance of staying on time
 
@@ -110,25 +70,25 @@ For Shanx, meeting deadlines is heavily dependent on diversity in your automatio
 
 He believes that maintaining clarity in documenting your true end-to-end process and having the right kind of tool attached to each fragment of that newly imagined journey will help you stay on target.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Intelligent Document Processing in Financial Services: Use Cases
 
 eBook
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Examples of measuring value
 
@@ -147,20 +107,6 @@ One area that has been driving automation is the demand for self-service from cu
 Clients want a short, sweet answer to their questions straight away. They don’t want to be sent a huge PDF of a contract and told to either find the answer themselves or wait a few days for the team to dig it out. JLL has identified this as a focus area for their business and is prioritizing the resolution of this challenge.
 
 Shanx is also in agreement about meeting demand for self-service options, but believes we need to do better with finding information in unstructured data, where there tends to be less than a 95 percent success rate. However, he feels technologies like generative AI will leapfrog that issue to obtain answers directly and in a very precise manner, which he thinks will be a game changer in banking for services such as equity research.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Mistakes to avoid
 
@@ -181,20 +127,6 @@ At ABBYY, we are honored to have hosted Intelligent Automation Month and share s
 You can access the entire customer panel session with JLL and IBM Consulting [here](https://tools.techidaily.com/abbyy/products/).
 
 ![Neilmurphy 99X99](https://static1.abbyy.com/abbyycommedia/25709/neilmurphy-99x99.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Neil Murphy
 
@@ -258,8 +190,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -267,4 +197,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-stumble-upon-these-hidden-meme-page-treasures/"><u>[Updated] 2024 Approved Stumble Upon These Hidden Meme Page Treasures</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-bypassing-instagrams-video-roadblocks-effortlessly-for-2024/"><u>[Updated] Bypassing Instagram's Video Roadblocks Effortlessly for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/buy-professional-macx-video-converter-top-choice-for-high-quality-format-switching/"><u>Buy Professional MacX Video Converter: Top Choice for High-Quality Format Switching</u></a></li>
+<li><a href="https://solve-news.techidaily.com/complete-set-of-macxdvd-tools-unlocked-secure-your-full-version-at-no-cost/"><u>Complete Set of MacXDVD Tools Unlocked: Secure Your Full Version at No Cost</u></a></li>
+<li><a href="https://solve-news.techidaily.com/download-free-netflix-movies-and-tv-series-for-ios-devices-enjoy-offline-viewing-anytime/"><u>Download Free Netflix Movies & TV Series for iOS Devices – Enjoy Offline Viewing Anytime</u></a></li>
+<li><a href="https://solve-news.techidaily.com/dvd-conversion-made-easy-enhance-your-videos-for-apple-products-with-editing-and-compression-tools/"><u>DVD Conversion Made Easy: Enhance Your Videos for Apple Products with Editing and Compression Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-oppo-k11-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Oppo K11 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-apple-iphone-15-pro-location-by-number-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track Apple iPhone 15 Pro Location by Number | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-icloud-separation-how-to-disconnect-apple-iphone-6-and-ipad-by-drfone-ios/"><u>In 2024, iCloud Separation How To Disconnect Apple iPhone 6 and iPad</u></a></li>
+<li><a href="https://solve-news.techidaily.com/itunes-dvd/"><u>ITunesで素早く簡単な方法： DVDのオーディオコンテンツをインポートするために？</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/pciphoneandroidgif/"><u>PC、iPhone、Androidで効率的な動画からGIFへの変換手順</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/secrets-of-earning-big-reddits-13-money-makers/"><u>Secrets of Earning Big Reddit's 13 Money Makers</u></a></li>
+<li><a href="https://solve-news.techidaily.com/simple-guide-transferring-movies-from-dvds-to-your-amazon-kindle-fire-hd-ideal-for-on-the-go-viewing/"><u>Simple Guide: Transferring Movies From DVDs to Your Amazon Kindle Fire HD – Ideal for On-the-Go Viewing</u></a></li>
+<li><a href="https://solve-news.techidaily.com/speedy-mac-dvd-ripper-and-ipad-video-converter-ultimate-toolkit-for-quick-seamless-media-transfer/"><u>Speedy Mac DVD Ripper & iPad Video Converter: Ultimate Toolkit for Quick, Seamless Media Transfer</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-upcoming-us-antitrust-revolution-and-its-influence-on-tech-giants/"><u>The Upcoming U.S. Antitrust Revolution and Its Influence on Tech Giants</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-motorola-moto-g24-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Motorola Moto G24 Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-free-live-streaming-football-apps-for-ios-and-android-devices/"><u>Top Free Live Streaming Football Apps for iOS and Android Devices</u></a></li>
+</ul></div>
 

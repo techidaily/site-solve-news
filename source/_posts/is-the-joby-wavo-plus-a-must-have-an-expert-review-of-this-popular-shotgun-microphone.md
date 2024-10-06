@@ -1,7 +1,7 @@
 ---
 title: Is the Joby Wavo Plus a Must-Have? An Expert Review of This Popular Shotgun Microphone
-date: 2024-09-12T16:01:23.658Z
-updated: 2024-09-16T16:00:00.215Z
+date: 2024-10-04T04:46:17.548Z
+updated: 2024-10-05T20:11:53.087Z
 tags:
   - product-reviews
 categories:
@@ -116,9 +116,23 @@ Jason Montoya / How-To Geek
 
  The Joby Wavo Plus includes two switches on the right side of the microphone. The first is the safe track switch, which limits the audio to -10dB on the right channel. When activated, the low-cut filter switch sits below this and is designed to remove low-end noises like cars in the background outside or inside air conditioning. You’ll find a three-position gain switch on the left side of the microphone. You can set this to 0 effect, -10dB, or +15 dB. Finally, on the backside is the power button, and below it is a large red headphone volume knob. Below it is a USB-C port and the audio output port.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Sound Quality: Subtle, But Effective
 
 ![Joby Wavo Plus at top of a Nikon camera](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/52774822811_55eccc790c_o.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Jason Montoya / How-To Geek
 
@@ -130,32 +144,26 @@ Jason Montoya / How-To Geek
 
 ![A Joby Wavo Plus from the side](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/52774289482_1cf01a71ea_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Jason Montoya / How-To Geek
 
  There’s much to love about the [Joby Wavo Plus](https://www.amazon.com/Joby-Wavo-Plus-Microphone-Monitoring/dp/B0BMG2JPC8?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002717&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fjoby-wavo-plus-review%2F&asc%5Fcampaign=Authority), including its ease of use, easy setup, and near weightlessness design. If you’re an amateur videographer, vlogger, or podcaster just starting out, it’s a product worth considering. And yet, you should also be aware other Joby microphones on the market offer more features for not much more money. For example, the $250 Joby Wavo Pro DS and $300 Joby Wave Pro are sometimes on sale and might be better for your needs. Regardless, I have no problem recommending the Joby Wavo Plus for anyone new to audio recording, whether alongside video recording or by itself.
 
 ![Joby Wavo Plus Mic](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/cleanshot-2024-04-17-at-10-21-19-2x.png) 
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #####  Joby Wavo Plus
@@ -179,5 +187,21 @@ The Joby Wavo Plus shotgun microphone is light and compact and offers excellent 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-essential-tips-for-twitpic-uploads/"><u>[Updated] 2024 Approved Essential Tips for Twitpic Uploads</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-superior-console-emulation-best-ps1-games-for-your-pc/"><u>[Updated] 2024 Approved Superior Console Emulation Best PS1 Games for Your PC</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-tailoring-sound-fades-within-logic-pro-settings/"><u>[Updated] Tailoring Sound Fades Within Logic Pro Settings</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhanced-web-analytics-with-cutting-edge-cookiebot-technology/"><u>Enhanced Web Analytics with Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhancing-your-online-presence-with-cookiebot-technology/"><u>Enhancing Your Online Presence with Cookiebot Technology</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tial-apps-best-10-software-to-capture-your-screens-for-2024/"><u>Essential Apps Best 10 Software to Capture Your Screens for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/expanding-horizons-in-artificial-intelligence-the-deepening-alliance-of-abbyy-and-novelis/"><u>Expanding Horizons in Artificial Intelligence: The Deepening Alliance of ABBYY and Novelis</u></a></li>
+<li><a href="https://solve-news.techidaily.com/experience-enhanced-tracking-with-our-state-of-the-art-cookiebot-platform/"><u>Experience Enhanced Tracking with Our State-of-the-Art Cookiebot Platform</u></a></li>
+<li><a href="https://solve-news.techidaily.com/free-abbyy-and-blueprism-demo-streamlining-ppp-loan-application-workflows/"><u>Free ABBYY & BluePrism Demo: Streamlining PPP Loan Application Workflows</u></a></li>
+<li><a href="https://solve-news.techidaily.com/harnessing-the-power-of-cookiebot-for-effective-analytics-and-tracking/"><u>Harnessing the Power of Cookiebot for Effective Analytics & Tracking</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pureimagezone-premium-tool-to-remove-backgrounds/"><u>In 2024, PureImageZone Premium Tool to Remove Backgrounds</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/latest-update-apple-discontinues-iphone-13-and-15-pro-expert-buying-guide-for-alternatives-zdnet-insights/"><u>Latest Update: Apple Discontinues iPhone 13 & 15 Pro - Expert Buying Guide for Alternatives | ZDNet Insights</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/sound-seekers-sanctuary-download-and-listen-to-songs-for-2024/"><u>Sound Seeker's Sanctuary Download & Listen To Songs for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transferring-dvd-content-to-a-usb-stick-step-by-step-guide-for-windows-and-mac/"><u>Transferring DVD Content to a USB Stick - Step-by-Step Guide for Windows & Mac</u></a></li>
+</ul></div>
 

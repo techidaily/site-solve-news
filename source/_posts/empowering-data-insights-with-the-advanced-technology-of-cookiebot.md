@@ -1,49 +1,15 @@
 ---
 title: Empowering Data Insights with the Advanced Technology of Cookiebot
-date: 2024-09-10T09:58:44.874Z
-updated: 2024-09-11T09:58:44.874Z
+date: 2024-10-02T23:17:07.520Z
+updated: 2024-10-05T23:24:41.027Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acf475c1e6fd1567e7a4a77c00bb440d7e3dd85bc4408fc0f7550af9263318d9.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Empowering Data Insights with the Advanced Technology of Cookiebot
 
 La vie chez ABBYY
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Imaginez-vous chez ABBYY 
 
@@ -52,20 +18,6 @@ Voici à quoi ressemble la vie chez ABBYY
 [Postes à pourvoir](https://tools.techidaily.com/abbyy/products/)
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/visuals/careers-visual-abbyy.jpg?h=1000&iar=0&w=5120)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Nos valeurs 
 
@@ -85,39 +37,18 @@ Nous faisons confiance à nos collègues pour ce qui est du savoir et de l’inf
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_people_employee-1-128.svg?h=128&iar=0&w=128)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Respect 
 
 Par-dessus tout, nous faisons preuve de respect. Nous sommes bienveillants avec nos coéquipiers, nous respectons les opinions des autres et nous sommes à l’écoute. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/carousel-1.jpg?h=242&iar=0&w=263)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/carousel-3.jpg?h=395&iar=0&w=360)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/carousel-2.jpg?h=396&iar=0&w=750)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-1-2023.jpg?h=242&iar=0&w=360)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-2.jpg?h=242&iar=0&w=458)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-3.jpg?h=242&iar=0&w=263)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-4-2023.jpg?h=396&iar=0&w=750)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-5-2023.jpg?h=396&iar=0&w=360)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/carousel-1.jpg?h=242&iar=0&w=263)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/carousel-3.jpg?h=395&iar=0&w=360)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/carousel-2.jpg?h=396&iar=0&w=750)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-1-2023.jpg?h=242&iar=0&w=360)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-2.jpg?h=242&iar=0&w=458)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-3.jpg?h=242&iar=0&w=263)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-4-2023.jpg?h=396&iar=0&w=750)![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/image-gallery/working-1-5-2023.jpg?h=396&iar=0&w=360)
 
@@ -126,6 +57,13 @@ Par-dessus tout, nous faisons preuve de respect. Nous sommes bienveillants avec 
 Ulf Persson, PDG du groupe ABBYY et membre du conseil d’administration 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/drawer-1.jpg?h=389&iar=0&w=750)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Nos principes directeurs 
 
@@ -179,19 +117,12 @@ Au cours des dernières années, nos employés nous ont toujours attribué des n
 
 Comme la plupart des entreprises prospères, nous nous efforçons de concevoir nos produits de manière à pouvoir les distinguer et mieux servir nos clients ; pour ce faire, nous devons être capables d’innover – l’innovation est une fonction du défi et de la pensée non linéaire, qui est à son tour favorisée par des individus qui représentent des perspectives différentes. Pour recruter et retenir des talents divers, nous devons offrir un environnement inclusif – une communauté où les différences sont célébrées et où chacun se sent à sa place. C’est notre aspiration et notre vision pour ABBYY. » 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Responsabilité environnementale et sociale (RSE) 
 
@@ -199,45 +130,31 @@ Chez ABBYY, les initiatives RSE revêtent une importance capitale depuis longtem
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_checkmark-64.svg?h=64&iar=0&w=64)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ##### Un arbre planté pour chaque affaire conclue 
 
 Pour chaque nouveau contrat conclu avec un client, nous faisons don d’un arbre par l’intermédiaire de One Tree Planted, ce qui nous a permis de planter plus de 2 000 arbres en 2021\. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_people_employee-1-64.svg?h=64&iar=0&w=64)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ##### Congés payés pour une bonne cause 
 
 Chacun dispose de deux jours rémunérés par an pour soutenir des causes qui lui tiennent à cœur. L’année dernière, plus de 40 causes ont ainsi été soutenues. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_mountain-64.svg?h=64&iar=0&w=64)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Sur la voie de la neutralité carbone 
 
@@ -259,8 +176,6 @@ Chaque année, nous organisons une compétition sportive internationale, avec de
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -268,4 +183,24 @@ Chaque année, nous organisons une compétition sportive internationale, avec de
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://solve-news.techidaily.com/automated-ad-targeting-with-cookiebot-technology/"><u>Automated Ad Targeting with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-user-engagement-and-conversion-rates-using-cookiebot-technology/"><u>Boost User Engagement and Conversion Rates Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boosting-online-success-through-cookiebot-technology-a-leap-in-marketing-automation-and-personalization/"><u>Boosting Online Success Through Cookiebot Technology: A Leap in Marketing Automation and Personalization</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boosting-your-sites-performance-with-cookiebot-technology/"><u>Boosting Your Site's Performance with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enabled-enhance-your-websites-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's Personalization</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enhanced-experience-the-power-of-automated-ppc-advertising/"><u>Cookiebot-Enhanced: Experience the Power of Automated PPC Advertising</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-the-innovative-solution-driving-website-customization-effortlessly/"><u>Cookiebot: The Innovative Solution Driving Website Customization Effortlessly</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-the-ultimate-solution-for-effortless-lead-generation-and-personalized-user-engagement/"><u>Cookiebot: The Ultimate Solution for Effortless Lead Generation and Personalized User Engagement</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-xiaomi-13t-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Xiaomi 13T Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-xiaomi-redmi-note-12-4g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Xiaomi Redmi Note 12 4G Phone? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-moto-g-with-stylus-exceptional-performance-and-solid-battery/"><u>In-Depth Analysis of Moto G with Stylus - Exceptional Performance & Solid Battery</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolving-youtubes-fading-background-problems/"><u>Resolving YouTube's Fading Background Problems</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solution-found-overcoming-the-mystery-of-sudden-black-screens-in-electronics/"><u>Solution Found! Overcoming the Mystery of Sudden Black Screens in Electronics</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-video-input-not-found-step-by-step-tutorial-for-a-working-display/"><u>Solving Video Input Not Found – Step-by-Step Tutorial for a Working Display</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-honor-90-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Honor 90? Tips, Tricks and Helpful Advice</u></a></li>
+</ul></div>
 

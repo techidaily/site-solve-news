@@ -1,43 +1,15 @@
 ---
 title: "Leveraging AI for Enhanced ROI: Insights From ABBYY's Innovative UK Partner Summit"
-date: 2024-09-10T09:58:45.090Z
-updated: 2024-09-11T09:58:45.090Z
+date: 2024-09-30T23:51:48.878Z
+updated: 2024-10-06T04:44:30.270Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3a0ff2475a3d988ca582620a3d23548d82c16dbdfb31f6e8194792291b9fef05.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Leveraging AI for Enhanced ROI: Insights From ABBYY's Innovative UK Partner Summit
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY’s UK Partner Day Highlights Innovation and ROI Using AI
 
@@ -53,20 +25,6 @@ Despite some claims that intelligent document processing (IDP) is obsolete, Max 
 
 **![abbyy-uk-partner-day-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_1.jpg)** 
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 #### How the NHS found success with ABBYY Vantage and Extra Technology 
 
 Extra Technology showcased the transformative power of [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), for fully automating invoice processing and reducing payment risk at the Manchester NHS Trust, where thousands of different types of invoices are processed a year. With ABBYY’s continuous machine learning capabilities, post-processing and data validation, invoicing times were significantly reduced, freeing up staff to focus on other business-critical areas and yielding cost-savings in the millions. 
@@ -78,20 +36,6 @@ Adopting ABBYY IDP has resulted in an evolution of our function and our staff, e
 Edd Berry, Director of Finance Innovation, Manchester University NHS Foundation Trust
 
 **![abbyy-uk-partner-day-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_3.jpg)** 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### How to streamline freight processes with ABBYY 
 
@@ -128,20 +72,6 @@ Thank you to all our partners for their continued dedication and collaboration. 
 _Subscribe to stay connected with email updates and thought leadership insights from ABBYY._ 
 
 ![Dan Corp](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/autors-headshots/dan_corp.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Dan Corp
 
@@ -199,8 +129,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -208,4 +136,31 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-capturequality-assessor-network-for-2024/"><u>[New] CaptureQuality Assessor Network for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-jest-junction-youtubes-top-20-for-a-lighthearted-pause/"><u>[New] Jest Junction YouTube's Top 20 for a Lighthearted Pause</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-vlc-capture-tool-assessment-for-2024/"><u>[New] VLC Capture Tool Assessment for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-explore-12-prime-flip-screen-cameras-revolutionizing-vlogs/"><u>[Updated] In 2024, Explore 12 Prime Flip Screen Cameras Revolutionizing Vlogs</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-quickcapture-miniapp-windows-10-version-for-2024/"><u>[Updated] QuickCapture MiniApp - Windows 10 Version for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1-free-mac-software-by-dvdvideosoft-advanced-video-conversion-recording-and-editing-tools/"><u>1. FREE MAC Software by DVDVideoSoft: Advanced Video Conversion, Recording & Editing Tools</u></a></li>
+<li><a href="https://solve-news.techidaily.com/best-hevc-encoding-tools-optimize-your-4k60p-videos-with-these-top-hevc-editors/"><u>Best HEVC Encoding Tools: Optimize Your 4K/60p Videos with These Top HEVC Editors</u></a></li>
+<li><a href="https://solve-news.techidaily.com/beyond-keepvid-uncover-reliable-alternatives-for-free-mp4-and-mp3-content-downloads/"><u>Beyond KeepVid: Uncover Reliable Alternatives for FREE MP4 and MP3 Content Downloads!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/breaking-down-ai-barriers-the-power-of-transfer-learning/"><u>Breaking Down AI Barriers: The Power of Transfer Learning</u></a></li>
+<li><a href="https://solve-news.techidaily.com/effortlessly-rip-and-convert-videos-with-handbrake-on-your-mac-device/"><u>Effortlessly Rip & Convert Videos with HandBrake on Your Mac Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-selection-of-expandable-mousepads-for-tech-enthusiasts/"><u>Elite Selection of Expandable Mousepads for Tech Enthusiasts</u></a></li>
+<li><a href="https://solve-news.techidaily.com/free-video-streaming-tools-ranked-by-performance-and-features-for-easy-download/"><u>Free Video Streaming Tools Ranked by Performance and Features for Easy Download</u></a></li>
+<li><a href="https://solve-news.techidaily.com/guaranteed-steps-to-safely-partition-a-mac-hard-disk-without-data-loss/"><u>Guaranteed Steps to Safely Partition a Mac Hard Disk Without Data Loss</u></a></li>
+<li><a href="https://solve-news.techidaily.com/how-to-upload-and-edit-avi-video-clips-in-imovie-at-no-cost/"><u>How to Upload and Edit AVI Video Clips in iMovie at No Cost</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-lava-yuva-2-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Lava Yuva 2 PC | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-vivo-t2x-5g-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Vivo T2x 5G Phone Hassle-Free</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-alternatives-to-anydvd-find-the-ultimate-dvd-ripper-software/"><u>Top Alternatives to AnyDVD: Find the Ultimate DVD Ripper Software</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

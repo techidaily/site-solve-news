@@ -1,69 +1,21 @@
 ---
 title: ABBYY and Blue Prism Unite to Deliver Revolutionary Automation Solutions
-date: 2024-09-10T09:58:44.296Z
-updated: 2024-09-11T09:58:44.296Z
+date: 2024-10-03T00:56:25.183Z
+updated: 2024-10-05T21:53:46.956Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da4dedfe1c7e2e3409bef7181.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## ABBYY and Blue Prism Unite to Deliver Revolutionary Automation Solutions
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY Partners with Blue Prism to Jointly Offer Transformative Automation Capabilities
 
 November 13, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### _ABBYY showcases content intelligence solutions from the Blue Prism Digital Exchange_
 
@@ -104,8 +56,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -113,4 +63,33 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-rapid-reel-sound-mixed-screenshotting/"><u>[New] 2024 Approved Rapid Reel Sound-Mixed Screenshotting</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-sims-chronicles-unplugged-innovative-techniques-to-recording-without-reliance-on-video-for-2024/"><u>[New] Sims Chronicles Unplugged Innovative Techniques to Recording Without Reliance on Video for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-mobile-video-experience-review-report-for-2024/"><u>[Updated] Mobile Video Experience Review Report for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-precise-approach-to-blend-gopro-videos-with-surrounding-virtual-landscapes/"><u>[Updated] Precise Approach to Blend GoPro Videos with Surrounding Virtual Landscapes</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/amazon-prime-video-and-the-simple-process-of-subtitle-removal/"><u>Amazon Prime Video and the Simple Process of Subtitle Removal</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-effortlessly-run-chatgpt-on-linux-a-comprehensive-guide-using-bavarder/"><u>How to Effortlessly Run ChatGPT on Linux - A Comprehensive Guide Using Bavarder</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-honor-v-purse-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Honor V Purse to iPad | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-tips-for-sharing-content-on-instagram/"><u>In 2024, Tips for Sharing Content on Instagram</u></a></li>
+<li><a href="https://solve-news.techidaily.com/optimized-with-cutting-edge-cookie-automation/"><u>Optimized with Cutting-Edge Cookie Automation</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/p90x-dvd/"><u>P90X DVDセットの模倣で成功へ:完全ガイド</u></a></li>
+<li><a href="https://solve-news.techidaily.com/pinnacle-insights-the-everest-syndicates-deep-dive-into-cutting-edge-content-strategies/"><u>Pinnacle Insights: The Everest Syndicate's Deep Dive Into Cutting-Edge Content Strategies</u></a></li>
+<li><a href="https://solve-news.techidaily.com/pourquoi-les-usagers-echouent-ils-a-la-mise-en-place-numerique-decouvrez-les-six-raisons-cles-selon-des-experts-it/"><u>Pourquoi Les Usagers Échouent-Ils À La Mise en Place Numérique? Découvrez Les Six Raisons Clés Selon Des Experts IT</u></a></li>
+<li><a href="https://solve-news.techidaily.com/seamless-web-engagement-through-cookiebot-technology-boost-traffic-and-conversions/"><u>Seamless Web Engagement Through Cookiebot Technology – Boost Traffic and Conversions</u></a></li>
+<li><a href="https://solve-news.techidaily.com/the-impact-of-switching-from-extract-transform-load-etl-to-execute-in-a-native-environment-elt-an-in-depth-exploration-by-abbyy/"><u>The Impact of Switching From Extract-Transform-Load (ETL) to Execute in a Native Environment (ELT): An In-Depth Exploration by ABBYY</u></a></li>
+<li><a href="https://solve-news.techidaily.com/the-transformation-of-healthcare-exploring-6-major-influences-of-cloud-technology/"><u>The Transformation of Healthcare: Exploring 6 Major Influences of Cloud Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transitioning-from-process-mining-to-advanced-process-intelligence-with-industry-insights-featuring-an-abbyy-specialist/"><u>Transitioning From Process Mining to Advanced Process Intelligence with Industry Insights - Featuring an ABBYY Specialist</u></a></li>
+<li><a href="https://solve-news.techidaily.com/unveiling-abyys-strategy-for-enhancing-ai-through-content-intelligence-insights-from-ai-summit-ny/"><u>Unveiling ABYY's Strategy for Enhancing AI Through Content Intelligence - Insights From AI Summit NY</u></a></li>
+<li><a href="https://solve-news.techidaily.com/utilizing-cookiebot-technology-for-enhanced-online-analytics/"><u>Utilizing Cookiebot Technology for Enhanced Online Analytics</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1dvd-dvd-vob-mts-flvavimp4/"><u>ランキング1位のDVD 動画変換ソフトを見つける：無料でDVD, VOB, MTS, FLVからAVI、MP4などへ簡単に変換する方法！</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

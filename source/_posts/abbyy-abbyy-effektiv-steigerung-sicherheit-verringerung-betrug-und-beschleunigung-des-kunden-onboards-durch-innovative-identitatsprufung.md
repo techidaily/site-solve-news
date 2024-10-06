@@ -1,49 +1,15 @@
 ---
 title: "AbbyY ABBYY: Effektiv Steigerung Sicherheit, Verringerung Betrug Und Beschleunigung Des Kunden-Onboards Durch Innovative Identitätsprüfung"
-date: 2024-09-10T09:58:43.332Z
-updated: 2024-09-11T09:58:43.332Z
+date: 2024-09-30T05:01:22.124Z
+updated: 2024-10-05T16:47:00.502Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5163c7ab05139a28f15cb6cd.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## AbbyY ABBYY: Effektiv Steigerung Sicherheit, Verringerung Betrug Und Beschleunigung Des Kunden-Onboards Durch Innovative Identitätsprüfung
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY reduziert Betrugsverluste und beschleunigt das Onboarding von Kunden mit einer neuen Lösung für den Identitätsnachweis
 
@@ -52,20 +18,6 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
 ![News Abbyy Poi](https://static2.abbyy.com/abbyycommedia/36116/news-abbyy-poi.jpg) 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ABBYY bringt die erste All-in-One-Lösung auf den Markt, mit der ein sofortiger Identitätsnachweis und -bestätigung jederzeit und überall möglich ist. Damit wird endlich das milliardenschwere Problem des Identitätsbetrugs gelöst, mit dem Verbraucher wie auch Unternehmen konfrontiert sind. [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/) vereinfacht dokumentenzentrierte digitale Onboarding-Prozesse und gibt Unternehmen die Gewissheit, dass Kunden, Mitarbeiter und Geschäftspartner auch die sind, für die sie sich ausgeben.
 
@@ -93,19 +45,12 @@ Unternehmen, die daran interessiert sind, wie sie ihr Onboardingerlebnis verbess
 
 Erfahren Sie mehr über [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/).
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Über ABBYY
 
@@ -117,43 +62,23 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### ABBYY Pressekontakt
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Eva-Maria Hufschmitt
 
@@ -169,8 +94,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -178,4 +101,20 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-breaking-into-the-digital-realm-the-wirecast-approach-for-youtube-streamers/"><u>[New] 2024 Approved Breaking Into the Digital Realm The WireCast Approach for YouTube Streamers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-posting-a-youtube-video-via-insta-stories-a-step-by-step-guide-for-2024/"><u>[Updated] Posting a YouTube Video via Insta Stories A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1-boost-engagement-seamless-steps-for-adding-wav-files-on-youtube/"><u>1. Boost Engagement: Seamless Steps for Adding WAV Files on YouTube</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1-offline-and-online-transforming-audio-files-from-wav-to-ogg-format-efficiently/"><u>1. Offline and Online: Transforming Audio Files From WAV to OGG Format Efficiently</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1726030443776-mp4srt/"><u>高画質オプティマイズ：永久に変わらないMP4動画へのSRT字幕完全リンク方法</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beyond-words-evaluating-the-performance-of-chatgpt-and-google-translate-for-accurate-translations/"><u>Beyond Words: Evaluating the Performance of ChatGPT and Google Translate for Accurate Translations</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/change-default-backup-location-mac/"><u>Change Default Backup Location (Mac)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-building-rapport-an-interviewers-toolkit/"><u>In 2024, Building Rapport An Interviewer's Toolkit</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/mobile-time-lapse-magic-top-apps-for-creatives-2023-edition/"><u>Mobile Time-Lapse Magic Top Apps for Creatives (2023 Edition)</u></a></li>
+<li><a href="https://win-able.techidaily.com/navigating-through-geforce-experience-hiccups-effective-solutions-for-error-free-gaming-enhancements/"><u>Navigating Through GeForce Experience Hiccups: Effective Solutions for Error-Free Gaming Enhancements</u></a></li>
+<li><a href="https://solve-news.techidaily.com/unlock-your-dvd-guide-to-bypassing-region-restrictions-in-the-usa/"><u>Unlock Your DVD: Guide to Bypassing Region Restrictions in the USA</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1726030566651-windows-10wav/"><u>Windows 10におけるWAVファイルなどのオーディオファイルのカット方法</u></a></li>
+<li><a href="https://solve-news.techidaily.com/wmvandroid/"><u>WMVビデオがAndroidスマートフォンで遊びやすく！カジュアルな方法</u></a></li>
+</ul></div>
 

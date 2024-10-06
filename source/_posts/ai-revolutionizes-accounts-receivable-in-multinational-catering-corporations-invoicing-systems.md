@@ -1,25 +1,11 @@
 ---
 title: AI Revolutionizes Accounts Receivable in Multinational Catering Corporation's Invoicing Systems
-date: 2024-09-10T09:58:43.451Z
-updated: 2024-09-11T09:58:43.451Z
+date: 2024-10-02T02:30:49.762Z
+updated: 2024-10-06T04:08:19.320Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a7c2cae58c74793489ce0f31c71cf2fc559db86f47849200c699a169a5f76d3f.png
 ---
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## AI Revolutionizes Accounts Receivable in Multinational Catering Corporation's Invoicing Systems
 
@@ -37,39 +23,11 @@ That’s what this multinational snack-food supplier was able to achieve by auto
 
 ![ap-challenges-infographic-en-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/how-a-multinational-food-enterprise-uses-ai-to-achieve-delicious-results/ap-challenges-infographic-en-1.png?h=67%25&w=100%25)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Jump to:
 
 [Top challenges in AP departments](https://tools.techidaily.com/abbyy/products/)  
 [Uncovering AP bottlenecks](https://tools.techidaily.com/abbyy/products/)  
 [Benefits of purpose-built AI in accounts payable](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Exploring the top challenges for accounts payable in 2024
 
@@ -85,19 +43,25 @@ Only 6% of attendees to the SSON webinar described their AP department as being 
 
 ![blog-ap-challenge-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/how-a-multinational-food-enterprise-uses-ai-to-achieve-delicious-results/blog-ap-challenge-1.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Uncovering AP challenges
 
@@ -115,6 +79,13 @@ As a result, invoices were processed differently in France, Brazil, and Italy.
 
 “We needed to design a solution that would encompass all these different markets and variations and still allow the company to service the unique needs of individual localities,” Bunch explained. 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How AI is used in invoice processing
 
 That’s where AI proved very beneficial, the company uses a combination of natural language processing (NLP) and machine learning (ML) for [automated invoice processing](https://tools.techidaily.com/abbyy/products/). 
@@ -130,25 +101,12 @@ AI-powered solutions can liberate AP staff from the manual, repetitive tasks tha
 
 ![blog-ap-challenge-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/how-a-multinational-food-enterprise-uses-ai-to-achieve-delicious-results/blog-ap-challenge-2.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Benefits of transforming AP into a strategic powerhouse
 
@@ -171,20 +129,6 @@ Curious to learn more about how a multinational snack food supplier used AI-powe
 [Access webinar](https://tools.techidaily.com/abbyy/products/)
 
 ![Mark-Brousseau](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/Mark-Brousseau.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Mark Brousseau
 
@@ -244,8 +188,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -253,4 +195,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-finding-a-different-way-to-naming-your-channel-with-filmora/"><u>[Updated] 2024 Approved Finding a Different Way to Naming Your Channel with Filmora</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-beginners-guide-to-designing-engaging-and-shareable-fb-slideshows/"><u>[Updated] 2024 Approved The Beginner's Guide to Designing Engaging and Shareable FB SlideShows</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-editors-dream-machine-top-portable-video-edits-tools/"><u>[Updated] In 2024, Editor's Dream Machine Top Portable Video Edits Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-professional-insights-io-screen-capturing-demystified-for-2024/"><u>[Updated] Professional Insights IO Screen Capturing Demystified for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-xiaomi-redmi-12-device-sim-by-drfone-android/"><u>Easily Unlock Your Xiaomi Redmi 12 Device SIM</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/find-joy-one-anime-at-a-time-youtubes-best-channels-list-for-2024/"><u>Find Joy, One Anime at a Time YouTube's Best Channels (List) for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/los-mejores-editores-gratuitos-de-video-del-ano-seleccion-de-las-16-mas-populares-para-cualquier-sistema-en-2024/"><u>Los Mejores Editores Gratuitos De Vídeo Del Año: Selección De Las 16 Más Populares Para Cualquier Sistema en 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/movavi-sin-costo-conversion-fructifera-de-archivos-aiff-a-wav-en-linea/"><u>Movavi - Sin Costo, Conversión Fructífera De Archivos AIFF a WAV en Línea</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-essential-free-resources-for-aspiring-guitarists-a-collection-of-background-images-and-tunes/"><u>New In 2024, Essential Free Resources for Aspiring Guitarists A Collection of Background Images and Tunes</u></a></li>
+<li><a href="https://solve-news.techidaily.com/the-complete-online-classroom-companion-essential-tools-applications-and-platforms-for-successful-e-learning/"><u>The Complete Online Classroom Companion: Essential Tools, Applications, & Platforms for Successful E-Learning</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-10-software-di-miscelazione-audio-piu-vantaggiosi-da-usare-nel-2024-scoperto-con-movavi/"><u>Top 10 Software Di Miscelazione Audio Più Vantaggiosi Da Usare Nel 2024 - Scoperto Con Movavi</u></a></li>
+<li><a href="https://some-tips.techidaily.com/valider-les-pieces-didentite-a-distance-grace-a-la-technologie-de-reconnaissance-optique-de-caracteres-ocr-de-abbyy-avec-le-systeme-trustid-en-nuage/"><u>Valider Les Pièces D'identité À Distance Grâce À La Technologie De Reconnaissance Optique De Caractères (OCR) De ABBYY Avec Le Système TrustID en Nuage</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1726221375186-aac-wav-movavi/"><u>액터리화된 AAC 오디오를 원근 상자에서 무료로 다시 WAV로 변환하는 방법: Movavi의 가이드</u></a></li>
+</ul></div>
 

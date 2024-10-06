@@ -1,69 +1,21 @@
 ---
 title: "Harnessing the Potential of ABBYY: Revolutionizing Contract Analysis with Advanced Text Analytics at Global In-House Counsel Summit"
-date: 2024-09-10T09:58:43.167Z
-updated: 2024-09-11T09:58:43.167Z
+date: 2024-10-02T01:30:37.773Z
+updated: 2024-10-06T00:37:53.706Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/afa50b24e25ed08989c229ae73d3b233da6ab60b7cf21c80e9cb56c9f6856e1f.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Harnessing the Potential of ABBYY: Revolutionizing Contract Analysis with Advanced Text Analytics at Global In-House Counsel Summit
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY Shows Power of Text Analytics for Contracts at World’s Largest Conference for In-House Corporate Counsel
 
 October 22, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### _Addresses Legal Professionals’ Need to Leverage Artificial Intelligence in Contracts and Leases at Annual Conference of the Association of Corporate Counsel_ 
 
@@ -104,8 +56,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -113,4 +63,33 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-top-5-tactics-from-experts-a-journey-of-online-brand-growth/"><u>[New] Top 5 Tactics From Experts A Journey of Online Brand Growth</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-your-ultimate-companion-a-stepwise-approach-to-filming-with-logitech/"><u>[New] Your Ultimate Companion A Stepwise Approach to Filming with Logitech</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-path-to-perfect-presentation-cutting-out-image-backdrops-on-canva/"><u>[Updated] 2024 Approved The Path to Perfect Presentation Cutting Out Image Backdrops on Canva</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagrams-best-practices-for-sensational-video-loops/"><u>[Updated] In 2024, Instagram's Best Practices for Sensational Video Loops</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-smartphone-solutions-top-voice-changer-applications/"><u>[Updated] Smartphone Solutions Top Voice Changer Applications</u></a></li>
+<li><a href="https://article-files.techidaily.com/find-the-finest-websites-with-free-game-of-thrones-audio-for-2024/"><u>Find the Finest Websites with Free Game of Thrones Audio for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/improve-your-videos-quality-a-guide-to-perfecting-sound-for-free/"><u>Improve Your Video's Quality: A Guide to Perfecting Sound for Free!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-13-official-method-to-unlock-your-apple-iphone-13-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 13 Official Method to Unlock Your Apple iPhone 13</u></a></li>
+<li><a href="https://solve-news.techidaily.com/in-depth-analysis-of-multimedia-container-codes-distinguishing-mts-from-m2ts/"><u>In-Depth Analysis of Multimedia Container Codes: Distinguishing MTS From M2TS</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovation-at-the-heart-the-evolution-of-magix-music-maker-for-2024/"><u>Innovation at the Heart The Evolution of Magix Music Maker for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-hdmi-usb-driver-download-enhance-your-display-connectivity-now/"><u>Latest HDMI-USB Driver Download: Enhance Your Display Connectivity Now!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/liveme-pc/"><u>LiveMe PC版の動画録画テクニック - ステップバイステップガイド</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mastering-the-conversion-of-cctv-vvf-recordings-a-step-by-step-guide/"><u>Mastering the Conversion of CCTV .vvf Recordings: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-news.techidaily.com/no-boundaries-method-comprehensive-steps-to-seamlessly-insert-subtitles-in-videos/"><u>No Boundaries Method: Comprehensive Steps to Seamlessly Insert Subtitles in Videos</u></a></li>
+<li><a href="https://solve-news.techidaily.com/optimized-video-formats-for-facebook-a-comprehensive-guide/"><u>Optimized Video Formats for Facebook : A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-news.techidaily.com/seamless-transformation-of-mxf-files-into-avi-format-simple-methods-unveiled/"><u>Seamless Transformation of MXF Files Into AVI Format – Simple Methods Unveiled</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/should-you-upgrade-your-icloud-plan-evaluating-the-value-of-more-storage-space/"><u>Should You Upgrade Your iCloud Plan? Evaluating the Value of More Storage Space</u></a></li>
+<li><a href="https://solve-news.techidaily.com/step-by-step-guide-how-to-transform-video-orientation-from-landscape-to-portrait-for-instagram-across-devices/"><u>Step-by-Step Guide: How to Transform Video Orientation From Landscape to Portrait for Instagram Across Devices</u></a></li>
+<li><a href="https://solve-news.techidaily.com/step-by-step-tutorial-for-sharing-animated-gifs-on-instagram-across-pc-and-smartphone-platforms/"><u>Step-by-Step Tutorial for Sharing Animated GIFs on Instagram Across PC and Smartphone Platforms</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

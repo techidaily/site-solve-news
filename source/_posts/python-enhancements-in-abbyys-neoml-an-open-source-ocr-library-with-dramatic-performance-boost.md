@@ -1,31 +1,11 @@
 ---
 title: "Python Enhancements in ABBYY's NeoML: An Open-Source OCR Library with Dramatic Performance Boost"
-date: 2024-09-10T09:58:45.183Z
-updated: 2024-09-11T09:58:45.183Z
+date: 2024-09-29T23:20:37.407Z
+updated: 2024-10-06T04:23:28.234Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26fcbb71888c8a6af3708b00c.jpg
 ---
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Python Enhancements in ABBYY's NeoML: An Open-Source OCR Library with Dramatic Performance Boost
 
@@ -39,33 +19,12 @@ June 22, 2021
 
 ![News Machinelearning](https://static1.abbyy.com/abbyycommedia/33738/news-machinelearning.jpg) 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### NeoML offers 50% faster performance than other popular open-source machine learning libraries.
 
@@ -87,43 +46,29 @@ To learn more about NeoML, please visit: <https://github.com/neoml-lib/neoml>
 
 To learn more about ABBYY’s Digital Intelligence solutions, please visit: <https://www.abbyy.com/>
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and is recognized for its leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability, and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/).[](https://tools.techidaily.com/abbyy/products/)
 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### ABBYY editorial contact
 
 ![02C Catherinejohnson](https://static1.abbyy.com/abbyycommedia/23661/02c-catherinejohnson.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Catherine Johnson
 
@@ -131,25 +76,12 @@ ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Gina Ray, APR
 
@@ -165,8 +97,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -174,4 +104,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/1716068992754-new-in-2024-explore-android-written-by-dr-jane-smith-a-renowned-psychologist-specializing-in-cognitive-development-and-learning-styles/"><u>[New] In 2024, Explore Android' Written By Dr. Jane Smith, a Renowned Psychologist Specializing in Cognitive Development and Learning Styles.</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-advanced-mac-toolkit-screenaudio-recording-feature/"><u>[Updated] Advanced Mac Toolkit Screen/Audio Recording Feature</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-a-beginners-guide-to-jujutsu-kaisen-on-tiktok/"><u>2024 Approved A Beginner’s Guide to Jujutsu Kaisen on TikTok</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-pushing-boundaries-a-roundup-of-the-best-nft-generators-available/"><u>2024 Approved Pushing Boundaries A Roundup of the Best NFT Generators Available</u></a></li>
+<li><a href="https://solve-news.techidaily.com/connect-with-digital-artistry-experts-contact-digiarty/"><u>Connect with Digital Artistry Experts - Contact Digiarty</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-ultimate-6-offline-language-converters-for-effortless-communication/"><u>Discover the Ultimate 6 Offline Language Converters for Effortless Communication</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725289516238-dvd/"><u>DVD形式一覧によるガイド - 重要なビジュアルフォーマットの解説: 書き込み前から録画用まで！</u></a></li>
+<li><a href="https://solve-news.techidaily.com/expert-picks-for-the-best-8-mobile-to-desktop-photo-transfer-applications-iphoneipad-to-computers/"><u>Expert Picks for the Best 8 Mobile-to-Desktop Photo Transfer Applications: IPhone/iPad to Computers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-xiaomi-redmi-k70-pro-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Xiaomi Redmi K70 Pro? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/masterizza-dvd-sicuri-con-imgburn-free-copie-protette-delle-immagini-iso/"><u>Masterizza DVD Sicuri Con ImgBurn Free: Copie Protette Delle Immagini ISO</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solve-your-roblox-problems-quick-a-step-by-step-guide-new-edition-2024/"><u>Solve Your Roblox Problems Quick: A Step-by-Step Guide (New Edition, 2024)</u></a></li>
+<li><a href="https://solve-news.techidaily.com/soporte-tecnico-en-linea-profesional-para-software-winx-herramientas-de-recuperacion-de-dvd-y-transformacion-de-videos/"><u>Soporte Técnico en Línea Profesional Para Software WinX: Herramientas De Recuperación De DVD Y Transformación De Vídeos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/techniques-for-downloading-vimeo-media-as-mp3/"><u>Techniques for Downloading Vimeo Media as MP3</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transform-your-pal-dvds-into-widely-used-video-formats-without-costing-a-penny/"><u>Transform Your PAL DVDs Into Widely Used Video Formats Without Costing a Penny!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/windows-11vob/"><u>Windows 11にてVOB再生方法 - 劣化しない技術ガイド</u></a></li>
+<li><a href="https://solve-news.techidaily.com/winxvideo-ai-comprehensive-multimedia-editor-upgrade-your-videos-with-upscaling-recording-and-more/"><u>Winxvideo AI: Comprehensive Multimedia Editor – Upgrade Your Videos with Upscaling, Recording and More</u></a></li>
+</ul></div>
 

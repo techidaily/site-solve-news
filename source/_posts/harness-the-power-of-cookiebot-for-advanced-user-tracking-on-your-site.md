@@ -1,75 +1,21 @@
 ---
 title: Harness the Power of Cookiebot for Advanced User Tracking on Your Site
-date: 2024-09-10T09:58:45.039Z
-updated: 2024-09-11T09:58:45.039Z
+date: 2024-09-30T22:34:18.211Z
+updated: 2024-10-05T21:08:37.212Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f493de897d20f957481bc1b83.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Harness the Power of Cookiebot for Advanced User Tracking on Your Site
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 請求書処理の自動化を実現する 「ABBYY FlexiCapture for Invoices」 ついに日本語の請求書対応が可能に！
 
 9月4日, 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 グローバルAI OCRリーディング企業ABBYY®の日本法人であるABBYYジャパン株式会社（本社：神奈川県横浜市、代表取締役：小原洋）は、AI OCR技術を活用した請求書処理アプリケーション「ABBYY FlexiCapture for Invoices」において、新たに日本語の請求書に対応したバージョンを２０２０年9月1日よりリリースいたしました。
 
@@ -118,20 +64,6 @@ ABBYYのFlexiCaptureが元来得意とする、取引先毎に異なるフォー
 | ![](https://static1.abbyy.com/abbyycommedia/29497/ja-press-release-04092020-picture-1.jpg?width=400&height=252&mode=max) | ![](https://static1.abbyy.com/abbyycommedia/29496/ja-press-release-04092020-picture-2.jpg?width=400&height=252&mode=max) |
 | ------------------------------------------------------------------------------------------------------------------------ | ------------------------------------------------------------------------------------------------------------------------ |
 
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
   
 **「ABBYY FlexiCapture for Invoices」 製品サイトは[こちら](https://tools.techidaily.com/abbyy/products/)** 
 
@@ -146,8 +78,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -155,4 +85,27 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/eginners-obs-techniques-for-youtube-live-streaming-for-2024/"><u>[New] Beginner's OBS Techniques for YouTube Live Streaming for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-conquer-youtube-vimeo-editing-5-advanced-trimming-strategies-for-2024/"><u>[New] Conquer YouTube-Vimeo Editing 5 Advanced Trimming Strategies for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-ultimate-free-mp3-skype-call-logger/"><u>[New] In 2024, Ultimate Free MP3 Skype Call Logger</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebooks-real-time-media-watch-guide-2023/"><u>2024 Approved Facebook's Real-Time Media Watch Guide, 2023</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-budget-friendly-srt-translators-unveiled-online/"><u>Best Budget-Friendly SRT Translators Unveiled Online</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/hd-mkv-player-enhancer-get-your-free-mkv-codec-collection-now/"><u>HD MKV Player Enhancer - Get Your Free MKV Codec Collection Now!</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-guide-to-extracting-silent-version-of-an-avi-file/"><u>New 2024 Approved Guide to Extracting Silent Version of an AVI File</u></a></li>
+<li><a href="https://solve-news.techidaily.com/quick-guide-mastering-the-art-of-time-alignment-for-videos-and-captions-in-vlc-media-player/"><u>Quick Guide: Mastering the Art of Time Alignment for Videos and Captions in VLC Media Player</u></a></li>
+<li><a href="https://solve-news.techidaily.com/rotating-your-iphone-videos-tips-and-tricks-for-90-and-180-degree-adjustments/"><u>Rotating Your iPhone Videos: Tips & Tricks for 90 and 180-Degree Adjustments</u></a></li>
+<li><a href="https://solve-news.techidaily.com/seamless-cross-platform-syncing-superior-options-for-sharing-data-on-mac-and-iphone/"><u>Seamless Cross-Platform Syncing: Superior Options for Sharing Data on Mac & iPhone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/seamless-photo-transfer-techniques-for-upgrading-to-an-iphone-x-8-or-plus-from-android-or-earlier-iphones/"><u>Seamless Photo Transfer Techniques for Upgrading to an iPhone X, 8 or Plus From Android or Earlier iPhones</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ultimate-guide-transforming-your-iphone-images-into-a-mac-library/"><u>Ultimate Guide: Transforming Your iPhone Images Into a Mac Library</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

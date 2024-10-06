@@ -1,63 +1,21 @@
 ---
 title: ABBYY Secures Exclusive Licensing Deal with Xerox for Enhanced Document Solutions
-date: 2024-09-10T09:58:44.439Z
-updated: 2024-09-11T09:58:44.439Z
+date: 2024-09-30T06:03:44.164Z
+updated: 2024-10-05T22:42:17.392Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ade52c66f0e56fc9f46bf8a90a52f0a6d57269829cd3f5e819633e97b2be938d.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## ABBYY Secures Exclusive Licensing Deal with Xerox for Enhanced Document Solutions
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY Announces Trademark License Agreement With Xerox
 
 March 23, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 _Partners create new cloud-based service for anytime, anywhere document translation_
 
@@ -92,8 +50,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -101,4 +57,27 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-roundup-of-platforms-for-video-intro-acquisition/"><u>[New] In 2024, Expert Roundup of Platforms for Video Intro Acquisition</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-capture-clarity-best-webcams-to-elevate-your-podcasts/"><u>[Updated] Capture Clarity Best Webcams to Elevate Your Podcasts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-reveal-the-secrets-top-12-ways-to-bring-non-showing-fb-vids-into-view/"><u>[Updated] Reveal the Secrets Top 12 Ways to Bring Non-Showing FB Vids Into View</u></a></li>
+<li><a href="https://solve-news.techidaily.com/beyond-authentication-the-role-and-restrictions-of-identity-verification-methods/"><u>Beyond Authentication: The Role & Restrictions of Identity Verification Methods</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-your-digital-presence-with-cookiebot-technology/"><u>Boost Your Digital Presence with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-your-sites-performance-using-the-cookiebot-solution/"><u>Boost Your Site's Performance Using the Cookiebot Solution</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boosting-online-traffic-with-our-innovative-cookiebot-technology-solutions/"><u>Boosting Online Traffic with Our Innovative Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-news.techidaily.com/capturer-efficacement-vos-documents-a-laide-dabbyy-au-sein-des-services-partages-rhenus-amelioration-et-personnalisation-en-mesure/"><u>Capturer Efficacement Vos Documents À L'aide D'ABBYY Au Sein Des Services Partagés Rhenus - Amélioration Et Personnalisation en Mesure</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-conversions-boost-your-traffic-the-organic-way/"><u>Cookiebot-Driven Conversions: Boost Your Traffic the Organic Way</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716360494672-how-to-block-youtube-channels-on-computer-and-mobile-phones/"><u>How to Block Youtube Channels on Computer and Mobile Phones</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-solve-mkv-lagging-problem-in-xiaomi-redmi-13c-by-aiseesoft-video-converter-play-mkv-on-android/"><u>How to solve MKV lagging problem in Xiaomi Redmi 13C?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/master-the-art-of-instagram-looped-footage/"><u>Master the Art of Instagram Looped Footage</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/windows-11-compatibility-with-idt-high-definition-sound-card-solved/"><u>Windows 11 Compatibility with IDT High Definition Sound Card - Solved!</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,63 +1,21 @@
 ---
 title: Automated Ad Targeting with Cookiebot Technology
-date: 2024-09-10T09:58:42.841Z
-updated: 2024-09-11T09:58:42.841Z
+date: 2024-09-30T18:02:57.131Z
+updated: 2024-10-05T22:42:01.326Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c60589952f8c878c66c4d03c2dc7430570638a52b8139e832f43c3d01160d93d.png
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Automated Ad Targeting with Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY Accelerates U.S. Food and Drug Administration’s Public Health Initiatives
 
 October 20, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) announced today that the U.S. Food and Drug Administration (FDA) is using its [Digital Intelligence platform](https://tools.techidaily.com/abbyy/products/) to accelerate its public health initiatives. ABBYY solutions digitize and process data within documents used for monitoring public health, including the government agency’s 30-year archive of forms used to report adverse events and current documents to ensure that critical reporting is captured accurately and quickly.
 
@@ -95,8 +53,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -104,4 +60,32 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-achieve-pristine-sound-in-recordings-free-tutorial-paid-tools-for-2024/"><u>[New] Achieve Pristine Sound in Recordings (Free Tutorial, Paid Tools) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-auroras-role-in-enhancing-image-contrast/"><u>[New] Aurora's Role in Enhancing Image Contrast</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-capture-the-thrill-essential-recording-tips-for-overwatch/"><u>[New] Capture the Thrill Essential Recording Tips for Overwatch</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-comprehensive-guide-to-viewing-facebook-videos-on-apple-tv-devices/"><u>[Updated] In 2024, Comprehensive Guide to Viewing Facebook Videos on Apple TV Devices</u></a></li>
+<li><a href="https://solve-news.techidaily.com/winx-mediatrans-iphoneipadipodpcwindows-1eb/"><u>『公式』WinX MediaTrans - iPhone、iPad、iPodのデータ移行・管理最適化ソフト！PC間でスムーズな転送を実現し、Windows (1Eb)互換。</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-hardware-drivers-with-windows-device-manager-in-windows-11-and-10-and-7-by-drivereasy-guide/"><u>How to identify missing hardware drivers with Windows Device Manager in Windows 11 & 10 & 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-acquaintances-elevate-your-chat-experience-with-messenger/"><u>Introducing Acquaintances: Elevate Your Chat Experience with Messenger</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mastering-steady-videos-across-platforms-tips-for-windows-mac-android-and-ios-users/"><u>Mastering Steady Videos Across Platforms: Tips for Windows, Mac, Android, and iOS Users</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mastering-the-art-of-video-enhancement-transform-low-res-footage-into-stunning-hd4k-quality/"><u>Mastering the Art of Video Enhancement: Transform Low-Res Footage Into Stunning HD/4K Quality</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-handbrake-preferences-to-maximize-video-quality-on-xbox-one-x-and-s-models/"><u>Top HandBrake Preferences to Maximize Video Quality on Xbox One X and S Models</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-quality-televisions-within-a-budget-of-1000-reviews-and-ratings-by-tech-experts-zdnet/"><u>Top Quality Televisions Within a Budget of $1,000 - Reviews & Ratings by Tech Experts | ZDNet</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-rangierte-kostenlose-h265-hevc-uhd-videospieler-fur-das-jahr-2022-neueste-liste/"><u>Top-Rangierte Kostenlose H.265 HEVC UHD-Videospieler Für Das Jahr 2022 - Neueste Liste</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,63 +1,21 @@
 ---
 title: Driven by the Advanced Data-Capture of Cookiebot
-date: 2024-09-10T09:58:42.970Z
-updated: 2024-09-11T09:58:42.970Z
+date: 2024-10-02T02:19:27.958Z
+updated: 2024-10-05T22:28:13.096Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9986a0298b6ed41baf9ff52abd2373f4874f20858ec27b5c29bc07659651b716.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Driven by the Advanced Data-Capture of Cookiebot
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY lance le connecteur FlexiCapture pour PFU PaperStream NX Manager en vue de permettre une automatisation pointue
 
 30 septembre 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### _Les scanners Fujitsu sont aptes à se doter des technologies d’ABBYY FlexiCapture pour capturer les données issues de tout type de document en vue de leur automatisation._
 
@@ -109,8 +67,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,4 +74,31 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-path-to-digital-fame-starting-and-building-a-youtube-chanel/"><u>[Updated] Path to Digital Fame Starting and Building a YouTube Chanel</u></a></li>
+<li><a href="https://techtrends.techidaily.com/complete-tutorial-restarting-out-of-safe-mode-in-microsofts-latest-operating-system/"><u>Complete Tutorial: Restarting Out of Safe Mode in Microsoft's Latest Operating System</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-update-canon-printer-mp250-drivers-step-by-step-guide/"><u>Download and Update Canon Printer MP250 Drivers - Step-by-Step Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/effortless-fixes-for-when-you-cant-find-your-wpcapsddll-a-comprehensive-guide/"><u>Effortless Fixes for When You Can’t Find Your wpcapsd.dll - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experiencing-trouble-talking-in-fortnite-heres-how-to-enable-your-micspeaker-promptly/"><u>Experiencing Trouble Talking in Fortnite? Here's How to Enable Your Mic/Speaker Promptly!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-itel-p40plus-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/insignia-usb-ethernet-converter-driver-download/"><u>Insignia USB-Ethernet Converter Driver Download</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/navigating-a-fresh-start-guide-to-altering-your-tiktok-username/"><u>Navigating a Fresh Start Guide to Altering Your TikTok Username</u></a></li>
+<li><a href="https://solve-news.techidaily.com/quick-and-effortless-transformation-of-ac3-into-high-quality-flac-format-for-your-computer/"><u>Quick and Effortless Transformation of AC3 Into High-Quality FLAC Format for Your Computer</u></a></li>
+<li><a href="https://solve-news.techidaily.com/simple-guide-converting-dvds-into-avi-files-seamlessly/"><u>Simple Guide: Converting DVDs Into AVI Files Seamlessly</u></a></li>
+<li><a href="https://solve-news.techidaily.com/step-by-step-tutorial-for-enabling-and-viewing-movie-subtitles-through-your-home-tv-system/"><u>Step-by-Step Tutorial for Enabling and Viewing Movie Subtitles Through Your Home TV System</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-13-skype-recording-tools-compatible-with-all-platforms-windows-mac-and-mobile/"><u>Top 13 Skype Recording Tools Compatible with All Platforms: Windows, Mac & Mobile</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-microphones-for-various-youtube-content-creators/"><u>Top Microphones for Various YouTube Content Creators</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-rated-dvd-to-avi-converter-apps-of-2024-for-pc-users-on-windows-10-and-11/"><u>Top-Rated DVD to AVI Converter Apps of 2024 for PC Users on Windows 10 and 11</u></a></li>
+<li><a href="https://solve-news.techidaily.com/tutorial-how-to-link-your-youtube-content-with-instagram/"><u>Tutorial: How to Link Your YouTube Content with Instagram</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ultimate-guide-to-enhancing-videos-by-efficiently-changing-their-bitrates-for-performance/"><u>Ultimate Guide to Enhancing Videos by Efficiently Changing Their Bitrates for Performance</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ultimate-tricks-to-reduce-size-of-mp4-videos-without-losing-quality/"><u>Ultimate Tricks to Reduce Size of MP4 Videos Without Losing Quality</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

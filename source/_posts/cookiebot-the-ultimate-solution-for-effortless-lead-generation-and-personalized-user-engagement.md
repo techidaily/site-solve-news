@@ -1,43 +1,15 @@
 ---
 title: "Cookiebot: The Ultimate Solution for Effortless Lead Generation and Personalized User Engagement"
-date: 2024-09-10T09:58:42.954Z
-updated: 2024-09-11T09:58:42.954Z
+date: 2024-09-30T16:24:44.264Z
+updated: 2024-10-06T03:45:34.849Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1526ae325fb6d05a08910e7b5067d22acd2fa8b701444a0508efbde4504c1f0a.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Cookiebot: The Ultimate Solution for Effortless Lead Generation and Personalized User Engagement
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY Strengthens Executive Leadership Team by Appointing Neil Murphy to Chief Sales Officer
 
@@ -45,47 +17,7 @@ May 23, 2023
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Neil Murphy News Abbyy](https://static4.abbyy.com/abbyycommedia/37254/neil-murphy-news-abbyy.jpg) 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ##### _Murphy will lead global efforts empowering customers with intelligent automation solutions that accelerate digital transformation goals._  
   
@@ -105,19 +37,12 @@ _Neil Murphy, Chief Sales Officer at ABBYY._
 
 To learn more about ABBYY intelligent automation solutions, visit <https://www.abbyy.com/company/about-us/>.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### About ABBYY
 
@@ -125,23 +50,23 @@ ABBYY powers intelligent automation. We reimagine the way people work and how co
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY Development, Inc. and/or its affiliates and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Gina Ray
 
@@ -158,8 +83,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -167,4 +90,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-the-snipers-manual-to-capturing-live-online-music/"><u>[New] In 2024, The Sniper’s Manual to Capturing Live Online Music</u></a></li>
+<li><a href="https://solve-news.techidaily.com/44cm44kq44oz44op44kk44oz5psplus6ycb44gu6yyy55s75oml6acg44ks44kk44oj44cn/"><u>「オンライン放送の録画手順ガイド」</u></a></li>
+<li><a href="https://solve-news.techidaily.com/5paw44gx44ge44k144o844ot44k55yip55so44gr5pya6ygp44gq44km44kn44ow44k144kk44oi44gu5yip55so55m76yyy44ks44kk44oj/"><u>新しいサービス利用に最適なウェブサイトご利用登録ガイド</u></a></li>
+<li><a href="https://solve-news.techidaily.com/aac-vs-mp3-differences-and-audio-quality-comparison-with-conversion-guide/"><u>AAC Vs. MP3: Differences & Audio Quality Comparison with Conversion Guide</u></a></li>
+<li><a href="https://solve-news.techidaily.com/comprehensive-tutorial-setting-up-and-operating-plex-on-your-fire-tv-stick/"><u>Comprehensive Tutorial: Setting Up & Operating Plex on Your Fire TV Stick</u></a></li>
+<li><a href="https://windows11.techidaily.com/configuring-an-everlasting-bin-for-deletion-in-the-windows-interface/"><u>Configuring an Everlasting Bin for Deletion in the Windows Interface</u></a></li>
+<li><a href="https://solve-news.techidaily.com/easy-guide-mastering-vlcs-resume-functionality-with-smart-bookmarking-techniques/"><u>Easy Guide: Mastering VLC's Resume Functionality with Smart Bookmarking Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Samsung Galaxy S23+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-ultimate-companion-for-polyglots/"><u>Mondly: The Ultimate Companion for Polyglots</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mpeg-4-vs-mp4-understanding-the-difference-and-conversion-techniques/"><u>MPEG-4 vs MP4: Understanding the Difference & Conversion Techniques</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/no-more-youtube-thumbnails-disable-previews/"><u>No More YouTube Thumbnails Disable Previews</u></a></li>
+<li><a href="https://network-issues.techidaily.com/screen-size-and-resize-problems-solved-with-latest-win-10-patch/"><u>Screen Size & Resize Problems Solved with Latest Win 10 Patch</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-initiating-and-maintaining-conversations-via-mozilla-thunderbirds-messaging-platform/"><u>Step-by-Step Guide: Initiating and Maintaining Conversations via Mozilla Thunderbird's Messaging Platform</u></a></li>
+</ul></div>
 

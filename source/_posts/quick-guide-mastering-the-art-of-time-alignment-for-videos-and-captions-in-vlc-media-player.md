@@ -1,25 +1,11 @@
 ---
 title: "Quick Guide: Mastering the Art of Time Alignment for Videos and Captions in VLC Media Player"
-date: 2024-09-10T09:58:42.005Z
-updated: 2024-09-11T09:58:42.005Z
+date: 2024-09-30T04:10:02.962Z
+updated: 2024-10-05T20:27:33.898Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/6ef16648595e97873cff52eb597372e60de93b0601596509e90390a2a00c63c2.jpg
 ---
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Quick Guide: Mastering the Art of Time Alignment for Videos and Captions in VLC Media Player
 
@@ -30,115 +16,34 @@ thumbnail: https://thmb.techidaily.com/6ef16648595e97873cff52eb597372e60de93b060
 * [Support](https://tools.techidaily.com/macxdvd/products/)
 * [Free Download](https://tools.techidaily.com/macxdvd/products/)
 
-
-
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon7.png) [Home](https://tools.techidaily.com/macxdvd/products/) \> [Video](https://tools.techidaily.com/macxdvd/products/) \> [Play Video](https://tools.techidaily.com/macxdvd/products/) \> VLC Subtitle Delay
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## VLC Subtitle Delay Fixed - How to Adjust/Sync Subtitles with Video in VLC 
-
-
 
 _This guide will give you the detailed tips to sync subtitles with video in VLC and also share you the best[VLC alternative](https://tools.techidaily.com/macxdvd/products/) to solve the subtitle sync issue, considering VLC delays or speeds up subtitles temporarily._
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon6.png) By [Candice Liu](https://tools.techidaily.com/macxdvd/products/) ｜Last updated on Jan 8, 2024
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-fa.jpg)](https://www.facebook.com/sharer/sharer.php?u=https://www.macxdvd.com/mac-dvd-video-converter-how-to/fix-vlc-subtitle-delay-with-video.htm)
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-tw.jpg)](https://twitter.com/intent/tweet?url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/fix-vlc-subtitle-delay-with-video.htm&text=)
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-go.jpg)](https://pinterest.com/pin/create/button/?url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/fix-vlc-subtitle-delay-with-video.htm&media=&description=)
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-in.jpg)](https://www.linkedin.com/shareArticle?mini=true&url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/fix-vlc-subtitle-delay-with-video.htm&title=&summary=&source=)
 
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
 _When I play a movie with subtitles on VLC, the text is often displayed too soon or too late, I wonder if there is a way to fix the VLC player subtitle delay or any software which could do this?_ 
 
 There are loads of chances when the subtitles are either lagging behind or leading ahead a movie in [VLC media player](https://tools.techidaily.com/macxdvd/products/), which drives you in a miff in particular you are watching a foreign film. Luckily, this player offers a nifty feature that lets you fix VLC subtitle track delay issue. Use the guide below to fix the issue. 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Table of Contents
 
 * [Part 1: Common Ways to Sync/Adjust Subtitles Delay in VLC](https://tools.techidaily.com/macxdvd/products/)
 * [Part 2: How to Fix VLC Subtitle Delay Permanently](https://tools.techidaily.com/macxdvd/products/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 1: How to Sync/Adjust Subtitles Delay in VLC
 
@@ -167,20 +72,6 @@ Free time to time, users will suffer from DVD rip errors and get messages like D
 **\[Solution 3\]**:  
  If you still fail to solve the VLC subtitle out of sync error with the above-mentioned solutions, please have a try of other alternatives like 5KPlayer. This is an all-in-one [free video player](https://tools.techidaily.com/5kplayer/products/), video downloader and airplay sender, which has been widely acclaimed among users and rated as 5-star by many tech giants. 
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 2: Fix VLC Subtitle Delay Permanently 
 
 The VLC feature is a life-saver for video buffs in case the subtitles and videos are out of sync. But remember that the above mentioned changes are temporary. As long as you close the video and restart it, you have to repeat the procedure again to the same video. Thus, to permanently sync the subtitle delay in VLC, you will need an alternative to enjoy the video at the best. 
@@ -197,6 +88,13 @@ Prior to the subtitle adding step, you need to [download subtitles](https://tool
 
 ![add subtitles to movie](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/zxh-mdrp-110701.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. Hit Edit > Subtitle button from the pop up window. Press Enable subtitle > External Subtitle File. Hit Add button and move the mouse to Done button to [add SRT subtitles to MKV](https://tools.techidaily.com/macxdvd/products/). 
 
 4\. Hit the RUN button to start sync subtitles with movie on your computer. After a couple of seconds, you can easily finish the VLC subtitle delay problem perfectly.
@@ -204,8 +102,6 @@ Prior to the subtitle adding step, you need to [download subtitles](https://tool
 ![add subs to mkv](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/add-subtitle.jpg) 
 
 Tags: [Play Video](https://tools.techidaily.com/macxdvd/products/) VLC Subtitle Delay
-
-
 
 Related Articles
 
@@ -215,81 +111,46 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic6.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 [How to Fix Out-of-Sync Audio in VLC Video Playback](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [KMPlayer VS VLC: Which One is the Best Video Player?](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic4.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 [How to Rip DVD on Mac with VLC and Free DVD Ripper](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [\[Solved\] Play MP4 Video with No Sound Issue](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic2.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 [How to Watch HD 4K MKV on iPhone without Issue](https://tools.techidaily.com/macxdvd/products/) 
 
-
-
 ![Digiarty Software](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../icon/logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
@@ -315,8 +176,6 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [Contact Us >>](https://tools.techidaily.com/macxdvd/products/)
 * [Partner >>](https://tools.techidaily.com/macxdvd/products/)
 
-
-
 [Home](https://tools.techidaily.com/macxdvd/products/) | [About](https://tools.techidaily.com/macxdvd/products/) | [Privacy Policy](https://tools.techidaily.com/macxdvd/products/) | [Terms and Conditions](https://tools.techidaily.com/macxdvd/products/) | [License Agreement](https://tools.techidaily.com/macxdvd/products/) | [Resource](https://tools.techidaily.com/macxdvd/products/) | [News](https://tools.techidaily.com/macxdvd/products/) | [Contact Us](https://tools.techidaily.com/macxdvd/products/)
 
 Copyright © 2024 Digiarty Software, Inc (MacXDVD). All rights reserved
@@ -330,8 +189,6 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -339,4 +196,21 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-branding-beyond-words-eye-catching-podcast-graphics/"><u>[Updated] In 2024, Branding Beyond Words Eye-Catching Podcast Graphics</u></a></li>
+<li><a href="https://solve-news.techidaily.com/iphone-iphoneipadapple-tv/"><u>簡易版 iPhone 影片轉換器：快速變換任何影片成iPhone/iPad/Apple TV適用格式</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mac-dvd-itunes-iphone-4dvd/"><u>無料Mac DVD iTunesに変換! IPhone 4用DVDリッパーツール</u></a></li>
+<li><a href="https://solve-news.techidaily.com/compra-il-programma-di-estrazione-dvd-del-prodotto-macx-direttamente-sul-web/"><u>Compra Il Programma Di Estrazione DVD Del Prodotto MacX Direttamente Sul Web</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cutting-edge-techniques-for-enhanced-visuals-in-videoleap/"><u>Cutting-Edge Techniques for Enhanced Visuals in Videoleap</u></a></li>
+<li><a href="https://solve-news.techidaily.com/descriptif-complet-comment-decoder-avec-succes-les-dvd-sur-macos-pour-une-experience-de-visionnage-privilegiee/"><u>Descriptif Complet : Comment Décoder Avec Succès Les DVD Sur macOS Pour Une Expérience De Visionnage Privilégiée</u></a></li>
+<li><a href="https://techtrends.techidaily.com/essential-fixes-handling-a-server-error-500-successfully/"><u>Essential Fixes: Handling a Server Error 500 Successfully</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/fix-apple-iphone-x-stuck-on-data-transfer-verified-solution-drfone-by-drfone-transfer-from-ios/"><u>Fix Apple iPhone X Stuck on Data Transfer Verified Solution! | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-samsung-galaxy-m34-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Samsung Galaxy M34 using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/investigating-the-speed-and-longevity-in-jabra-talk-25-microphone/"><u>Investigating the Speed and Longevity in Jabra Talk 25 Microphone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/simple-steps-changing-your-fortnite-username-on-pc-without-hassle/"><u>Simple Steps: Changing Your Fortnite Username on PC Without Hassle</u></a></li>
+<li><a href="https://solve-news.techidaily.com/solving-your-vudu-playback-issue-seamless-transition-from-disc-to-digital/"><u>Solving Your 'VUDU Playback Issue' - Seamless Transition From Disc to Digital</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/top-tactics-for-triumph-roller-champions-crossplay-gaming-guide-on-computer-systems-updated/"><u>Top Tactics for Triumph: Roller Champions Crossplay Gaming Guide on Computer Systems (Updated )</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ultimate-selection-of-vines-free-high-quality-hd-downloads-directly-from-youtube/"><u>Ultimate Selection of Vines: Free, High-Quality HD Downloads Directly From YouTube</u></a></li>
+</ul></div>
 

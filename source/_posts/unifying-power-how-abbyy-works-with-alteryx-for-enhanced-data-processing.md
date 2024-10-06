@@ -1,57 +1,15 @@
 ---
 title: "Unifying Power: How ABBYY Works with Alteryx for Enhanced Data Processing"
-date: 2024-09-10T09:58:44.246Z
-updated: 2024-09-11T09:58:44.246Z
+date: 2024-10-01T03:18:15.442Z
+updated: 2024-10-05T17:50:40.124Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0ef39d9a604e71499226be4f237e87d1b86c04c6f94c96b9949bbc0cc087d2d2.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Unifying Power: How ABBYY Works with Alteryx for Enhanced Data Processing
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY | Alteryx 
 
@@ -101,25 +59,25 @@ Alteryx APAのデータを活用した作業プロセスやプロセスの変動
 
 コストや期間、ボリュームといった定量化が可能なプロセスメトリックスを活用し、データドリブンな決定を行うための論拠を自動的に生成します。
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Process Intelligenceにより強化されたAlteryx APA Platform™ 
 
 エンドツーエンドの業務プロセスを最適化するプロセス分析可能なAPA。 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/all-solutions/connectors/12-alteryx-scheme-jp.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Alteryx向けABBYY コネクタ 
 
@@ -128,6 +86,13 @@ Alteryx向けABBYY コネクタは、ABBYY TimelineプラットフォームとAl
 [コネクタのダウンロード](https://tools.techidaily.com/abbyy/products/)
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/alteryx.png?h=40&iar=0&w=120)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### ユースケース
 
@@ -147,79 +112,12 @@ ABBYY Timelineは、合法の範囲を超えて通報の対象となる疑いが
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image-2.jpg?h=716&iar=0&w=1272)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-##### ブログ 
-
-#### ABBYY Timeline Connector for Alteryx®のご紹介 
-
-アナリティックす・プロセス・オートメーション（APA）のリーダーであるAlteryx社との連携についてのブログ記事。ABBYYブログは毎週更新！ 
-
-[ブログを読む](https://static3.abbyy.com/abbyycommedia/34329/solutionbrief-timeline-alteryx-connector-en.pdf)
-
-![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-##### ビデオ 
-
-#### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
-
-ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエンドのプロセスがどのように視覚化されるのかを見てみましょう。 
-
-[動画を見る](https://www.youtube.com/watch?v=IcuhMXeGpOE)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
-
-##### ウェビナー
-
-#### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
-
-See how you can gain a 360-degree view of your business operations, enabling business transformation to better connect and automate across data, processes, and people. 
-
-[ウェビナーを見る](https://tools.techidaily.com/abbyy/products/)
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
@@ -233,111 +131,108 @@ See how you can gain a 360-degree view of your business operations, enabling bus
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
-
-##### ビデオ 
-
-#### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
-
-ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエンドのプロセスがどのように視覚化されるのかを見てみましょう。 
-
-[動画を見る](https://www.youtube.com/watch?v=IcuhMXeGpOE)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
-
-##### ウェビナー
-
-#### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
-
-See how you can gain a 360-degree view of your business operations, enabling business transformation to better connect and automate across data, processes, and people. 
-
-[ウェビナーを見る](https://tools.techidaily.com/abbyy/products/)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-##### ブログ 
-
-#### ABBYY Timeline Connector for Alteryx®のご紹介 
-
-アナリティックす・プロセス・オートメーション（APA）のリーダーであるAlteryx社との連携についてのブログ記事。ABBYYブログは毎週更新！ 
-
-[ブログを読む](https://static3.abbyy.com/abbyycommedia/34329/solutionbrief-timeline-alteryx-connector-en.pdf)
-
-![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-##### ビデオ 
-
-#### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
-
-ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエンドのプロセスがどのように視覚化されるのかを見てみましょう。 
-
-[動画を見る](https://www.youtube.com/watch?v=IcuhMXeGpOE)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
 
+##### ビデオ 
 
+#### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
+
+ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエンドのプロセスがどのように視覚化されるのかを見てみましょう。 
+
+[動画を見る](https://www.youtube.com/watch?v=IcuhMXeGpOE)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
+
+##### ウェビナー
+
+#### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
+
+See how you can gain a 360-degree view of your business operations, enabling business transformation to better connect and automate across data, processes, and people. 
+
+[ウェビナーを見る](https://tools.techidaily.com/abbyy/products/)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
+
+##### ブログ 
+
+#### ABBYY Timeline Connector for Alteryx®のご紹介 
+
+アナリティックす・プロセス・オートメーション（APA）のリーダーであるAlteryx社との連携についてのブログ記事。ABBYYブログは毎週更新！ 
+
+[ブログを読む](https://static3.abbyy.com/abbyycommedia/34329/solutionbrief-timeline-alteryx-connector-en.pdf)
+
+![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
+
+##### ビデオ 
+
+#### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
+
+ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエンドのプロセスがどのように視覚化されるのかを見てみましょう。 
+
+[動画を見る](https://www.youtube.com/watch?v=IcuhMXeGpOE)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
+
+##### ウェビナー
+
+#### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
+
+See how you can gain a 360-degree view of your business operations, enabling business transformation to better connect and automate across data, processes, and people. 
+
+[ウェビナーを見る](https://tools.techidaily.com/abbyy/products/)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
+
+##### ブログ 
+
+#### ABBYY Timeline Connector for Alteryx®のご紹介 
+
+アナリティックす・プロセス・オートメーション（APA）のリーダーであるAlteryx社との連携についてのブログ記事。ABBYYブログは毎週更新！ 
+
+[ブログを読む](https://static3.abbyy.com/abbyycommedia/34329/solutionbrief-timeline-alteryx-connector-en.pdf)
+
+![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+##### ビデオ 
+
+#### ABBYY TimelineとAlteryx Analytic Platform™を統合する方法 
+
+ABBYY TimelineとAlteryx APA™が統合することで、エンドツーエンドのプロセスがどのように視覚化されるのかを見てみましょう。 
+
+[動画を見る](https://www.youtube.com/watch?v=IcuhMXeGpOE)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
 ##### ウェビナー
 
@@ -357,8 +252,6 @@ See how you can gain a 360-degree view of your business operations, enabling bus
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -366,4 +259,20 @@ See how you can gain a 360-degree view of your business operations, enabling bus
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-your-content-a-guide-to-engaging-live-thumbnails/"><u>[New] In 2024, Elevate Your Content A Guide to Engaging Live Thumbnails</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mobile-battlefronts-the-best-mobas-on-android/"><u>[New] Mobile Battlefronts The Best MOBAs on Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-costless-webinars-on-youtube-a-handbook/"><u>[Updated] In 2024, Creating Costless Webinars on YouTube A Handbook</u></a></li>
+<li><a href="https://network-issues.techidaily.com/display-rescue-correcting-driver-issue-successfully/"><u>Display Rescue: Correcting Driver Issue Successfully</u></a></li>
+<li><a href="https://solve-news.techidaily.com/elevate-your-sites-ranking-boosting-seo-through-advanced-cookiebot-technology/"><u>Elevate Your Site's Ranking: Boosting SEO Through Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/elevate-your-website-with-advanced-cookiebot-analytics-for-superior-seo-results/"><u>Elevate Your Website with Advanced Cookiebot Analytics for Superior SEO Results</u></a></li>
+<li><a href="https://solve-news.techidaily.com/elevating-ap-workflows-beyond-simple-automation-through-strategic-content-insight/"><u>Elevating AP Workflows: Beyond Simple Automation Through Strategic Content Insight</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-site-traffic-with-cookiebot-technology-a-boost-in-seo-success/"><u>Enhance Site Traffic with Cookiebot Technology: A Boost in SEO Success</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-your-sites-traffic-with-cutting-edge-cookiebot-seo-solutions/"><u>Enhance Your Site's Traffic with Cutting-Edge Cookiebot SEO Solutions</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhanced-through-the-use-of-cookiebot-solutions/"><u>Enhanced Through the Use of Cookiebot Solutions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-8-plus-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover iPhone 8 Plus Data From iTunes? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Samsung Galaxy S24 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Samsung Galaxy A24 | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,63 +1,21 @@
 ---
 title: "TimelinePI-Übernahme: Erfolgreicher Wendepunkt in Der Fortentwicklung Von ABBYYs Führender Position Bei Digitalisierungsprojekten"
-date: 2024-09-10T09:58:45.200Z
-updated: 2024-09-11T09:58:45.200Z
+date: 2024-10-04T18:48:13.913Z
+updated: 2024-10-05T22:04:32.712Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/83862af6c48eed4f22a649a79deec35e1e15bdc44c6b305417ce32effff185ec.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## TimelinePI-Übernahme: Erfolgreicher Wendepunkt in Der Fortentwicklung Von ABBYYs Führender Position Bei Digitalisierungsprojekten
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY übernimmt TimelinePI und festigt führende Rolle in digitaler Transformation
 
 5\. August 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ABBYY, ein weltweit führender Anbieter von Technologien und Lösungen für Digital IQ, hat heute die offizielle Übernahme des in Philadelphia, Pennsylvania ansässigen Unternehmens TimelinePI bekanntgegeben. TimelinePI ist Entwickler einer umfassenden Process-Intelligence-Plattform, die es Anwendern ermöglicht, jede Art von Geschäftsprozessen zu verstehen, zu überwachen und zu optimieren.
 
@@ -114,8 +72,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,4 +79,29 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-gaming-channel-evolution-best-14-video-ideas-on-youtube/"><u>[New] In 2024, Gaming Channel Evolution Best 14 Video Ideas on YouTube</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-how-to-thrive-after-facebooks-content-algorithm-overhaul/"><u>[New] In 2024, How to Thrive After Facebook's Content Algorithm Overhaul</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-steps-to-successful-mac-video-capture/"><u>[New] In 2024, Steps to Successful Mac Video Capture</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-debating-digital-domains-obs-versus-twitch/"><u>2024 Approved Debating Digital Domains OBS Versus Twitch</u></a></li>
+<li><a href="https://solve-news.techidaily.com/5yuv55s75a656yep5bcp44gv44gp44gx44gm44kc44kv44kp44oq44og44kj6imv44gp77yb44gk44gz44gz44kb44ot44oh44kq5zyn57iu44k944ov44oi77yg5pya6auy44gu5pa55rov/"><u>動画容量小さくしてもクォリティ良く！おすすめビデオ圧縮ソフト＆最高の方法</u></a></li>
+<li><a href="https://solve-news.techidaily.com/androidiphoneipadwindows-11dvd-dvdavi-mp4-h260/"><u>适用于Android、iPhone及iPad的Windows 11免费DVD转播程序 - 自由提取并转换DVD为高效率AVI MP4 H260视频</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-guide-for-iphone-11-pro-lock-screen-by-drfone-ios/"><u>Complete Guide For iPhone 11 Pro Lock Screen</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/enhancing-your-tv-setup-for-a-memorable-super-bowl-showdown/"><u>Enhancing Your TV Setup for a Memorable Super Bowl Showdown</u></a></li>
+<li><a href="https://solve-news.techidaily.com/evolution-of-microsoft-os-a-comprehensive-look-at-windows-10-upgrades-over-xp/"><u>Evolution of Microsoft OS: A Comprehensive Look at Windows 10 Upgrades over XP</u></a></li>
+<li><a href="https://solve-news.techidaily.com/handbrake-software-ersteinrichtung-auf-64-bit-systemen-sucht-nach-vlc-64-bit-unterstutzung/"><u>HandBrake-Software: Ersteinrichtung Auf 64-Bit Systemen - Sucht Nach VLC 64-Bit Unterstützung</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-to-burn-video-to-dvd-on-mac/"><u>How to Burn Video to DVD on Mac</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-apple-iphone-12-pro-max-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass Apple iPhone 12 Pro Max Passcode Easily Video Inside</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/length-limit-check-out-these-5-youtube-minisizers-for-2024/"><u>Link Length Limit? Check Out These 5 YouTube Minisizers for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/optimal-software-alternatives-for-enabling-plex-hardware-acceleration/"><u>Optimal Software Alternatives for Enabling PLEX Hardware Acceleration</u></a></li>
+<li><a href="https://solve-news.techidaily.com/optimisez-la-qualite-video-avec-lintelligence-artificielle-de-winxvideo/"><u>Optimisez La Qualité Vidéo Avec L'intelligence Artificielle De Winxvideo</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

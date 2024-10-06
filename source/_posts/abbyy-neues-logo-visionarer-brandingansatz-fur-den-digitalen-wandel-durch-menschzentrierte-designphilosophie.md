@@ -1,69 +1,21 @@
 ---
 title: ABBYY Neues Logo - Visionärer Brandingansatz Für Den Digitalen Wandel Durch Menschzentrierte Designphilosophie
-date: 2024-09-10T09:58:45.288Z
-updated: 2024-09-11T09:58:45.288Z
+date: 2024-10-04T00:45:11.683Z
+updated: 2024-10-05T17:03:37.680Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1a6a2f19734cf5d213e7a224.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## ABBYY Neues Logo - Visionärer Brandingansatz Für Den Digitalen Wandel Durch Menschzentrierte Designphilosophie
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY reflektiert mit neuem Branddesign seinen Fokus auf Menschen und die Digitale Transformation
 
 18\. März 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ABBYY, ein globales Unternehmen für Digital Intelligence, hat heute seine neue, dynamische Corporate Brand Identity sowie das aktualisierte Logo vorgestellt. Das neue Branding, das zusammen mit der Marken- und Designagentur [Shuka](https://shuka.design/) entwickelt wurde, spiegelt wieder, wofür ABBYY steht: ein visionärer, innovativer, zuverlässiger und kreativer Experte, der Unternehmen weltweit hilft, Wege der Digitalen Transformation neu zu gestalten und zu beschleunigen
 
@@ -98,8 +50,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -107,4 +57,23 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-explore-the-best-kept-facebook-meme-secrets-for-2024/"><u>[New] Explore The Best-Kept Facebook Meme Secrets for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-creme-de-la-creme-of-vr-development-talent/"><u>[Updated] The Crème De La Crème of VR Development Talent</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1726027809712-mp3mp4/"><u>動画形式への変換: MP3プレイヤーでMP4を再生するコツ</u></a></li>
+<li><a href="https://solve-news.techidaily.com/best-free-and-premium-software-top-4-iso-generator-picks/"><u>Best Free and Premium Software: Top 4 ISO Generator Picks</u></a></li>
+<li><a href="https://solve-news.techidaily.com/click-add-videos-to-import-your-avi-file-into-the-program-you-may-have-an-option-to-choose-specific-files-if-you-want-only-certain-ones-converted-but-for-no143/"><u>Click Add Videos to Import Your AVI File Into the Program. You May Have an Option to Choose Specific Files if You Want only Certain Ones Converted, but for Now, Select All the Desired AVI Files in Your Folder.</u></a></li>
+<li><a href="https://solve-news.techidaily.com/discover-the-top-11-itunes-replacements-for-easy-management-and-transfer-of-ios-content/"><u>Discover The Top 11 iTunes Replacements For Easy Management And Transfer Of iOS Content</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/proven-film-edits-that-enhance-visual-storytelling/"><u>Proven Film Edits That Enhance Visual Storytelling</u></a></li>
+<li><a href="https://solve-news.techidaily.com/rip-dvds-faster-with-official-winx-dvd-ripper-platinum-hd-quality-conversion-to-mp4-and-hevc/"><u>Rip DVDs Faster with Official WinX DVD Ripper Platinum - HD Quality Conversion to MP4 & HEVC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unexpected-insights-on-the-universe-from-an-analytical-mind-aminys-review/"><u>Unexpected Insights on the Universe From an Analytical Mind - Aminy's Review</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

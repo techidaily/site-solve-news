@@ -1,49 +1,15 @@
 ---
 title: "Introducing the Passionate Musicians of ABBYY: More Than Just a Team"
-date: 2024-09-10T09:58:44.047Z
-updated: 2024-09-11T09:58:44.047Z
+date: 2024-09-30T22:04:26.832Z
+updated: 2024-10-06T04:36:41.074Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93248db2ddf9a669b098df892.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Introducing the Passionate Musicians of ABBYY: More Than Just a Team
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Beyond the Job Title:  
 Meet the Music Lovers at ABBYY
@@ -55,20 +21,6 @@ At ABBYY, our colleagues are more than their job titles. They are passionate, we
 #### Nick Carr, Director of EMEA Pre-Sales, UK
 
 ![Nick Carr Director of EMEA Pre-Sales UK](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-meet-the-music-lovers-at-abbyy/nick-carr-director-of-emea-pre-sales-uk.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Nick Carr has been captivated by music from an early age, finding joy and challenge in mastering different instruments. His journey with the drums began as a teenager, and this passion has accompanied him throughout his life and career.
 
@@ -98,26 +50,6 @@ Nick told us how his passion helped him become more adaptable, and a better comm
 
 ![Colin Busick Public Relations Specialist US](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-meet-the-music-lovers-at-abbyy/colin-busick-public-relations-specialist-us.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Colin’s musical journey began with childhood piano lessons, eventually leading him through a variety of musical ensembles and experiences. His dedication to music has deeply influenced his personal and professional life.
 
 ##### What made you choose this hobby? How did you come across this activity?
@@ -141,20 +73,6 @@ Colin values the friendships and unique experiences music has brought into his l
 #### Aaron Schafer, Senior Customer Success Manager, US
 
 ![Aaron Schafer Senior Customer Success Manager US](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-meet-the-music-lovers-at-abbyy/aaron-schafer-senior-customer-success-manager-us.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Aaron Schafer's love for DJing started in his youth, influenced by his father's work as a DJ. His passion for drum and bass music has shaped his life, providing a creative outlet and a sense of community.
 
@@ -228,8 +146,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -237,4 +153,28 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-best-budget-friendly-stopwatch-service/"><u>[New] 2024 Approved Best Budget-Friendly Stopwatch Service</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-transformative-role-of-luts-in-visual-artistry/"><u>[New] The Transformative Role of LUTs in Visual Artistry</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebook-video-downloader-round-up-1-5-edition/"><u>[Updated] 2024 Approved Facebook Video Downloader Round-Up #1-5 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-aesthetic-alchemy-transforming-youtube-videos-for-2024/"><u>[Updated] Aesthetic Alchemy Transforming YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-eye-shadow-and-lips-tutorials/"><u>[Updated] In 2024, Eye Shadow & Lips Tutorials</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/advanced-5-internet-viewing-units/"><u>Advanced 5 Internet Viewing Units</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-your-sites-traffic-with-the-advanced-capabilities-of-cookiebot/"><u>Boost Your Site's Traffic with the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ceo-ulf-perssons-address-abbyy-groups-strategic-response-to-the-ongoing-covid-19-pandemic/"><u>CEO Ulf Persson's Address: ABBYY Group's Strategic Response to the Ongoing COVID-19 Pandemic</u></a></li>
+<li><a href="https://solve-news.techidaily.com/comprehensive-low-codeno-code-strategies-for-streamlining-invoice-management/"><u>Comprehensive Low-Code/No-Code Strategies for Streamlining Invoice Management</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-conversion-boost-your-sites-performance/"><u>Cookiebot-Driven Conversion: Boost Your Site's Performance</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-solutions-enhancing-your-websites-seo-and-analytics/"><u>Cookiebot-Driven Solutions: Enhancing Your Website's SEO and Analytics</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-success-boosting-online-engagement-through-smart-data-tracking/"><u>Cookiebot-Driven Success: Boosting Online Engagement Through Smart Data Tracking</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-instagrams-qanda-feature-beyond-the-basics/"><u>In 2024, Mastering Instagram's Q&A Feature Beyond the Basics</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-vivo-y78plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Vivo Y78+ | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

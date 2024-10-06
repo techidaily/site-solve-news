@@ -1,7 +1,7 @@
 ---
 title: Boost Your Automation Excellence with Blue Prism's Award-Winning Process Analytics
-date: 2024-09-10T09:58:43.568Z
-updated: 2024-09-11T09:58:43.568Z
+date: 2024-09-29T19:50:35.234Z
+updated: 2024-10-06T01:32:45.607Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8e7429f26cf226f9f9f144f8b464e629b87419e8b1e2596cca527bf6aeb943f1.jpg
@@ -11,45 +11,11 @@ thumbnail: https://thmb.techidaily.com/8e7429f26cf226f9f9f144f8b464e629b87419e8b
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Blue Prism stellt preisgekrönte Process Intelligence zur Optimierung der Automatisierungsleistung vor
 
 6\. Oktober 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ![Blueprism News 848X444](https://static4.abbyy.com/abbyycommedia/34371/blueprism-news-848x444.jpg) 
 
@@ -81,35 +47,21 @@ Das neue Angebot trägt wesentlich zum Erfolg eines jeden Unternehmens, für das
 
 [Erfahren Sie mehr](https://www.blueprism.com/products/blue-prism-process-intelligence/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-product-2021-q4-10-1-blue-prism-process-intelligence) über Blue Prism Process Intelligence Powered by ABBYY Timeline.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Hinweise an die Redaktion: 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Über Blue Prism
 
@@ -125,19 +77,18 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Medienansprechpartner:
 
@@ -151,25 +102,18 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983584">
+<span id="1983539">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Bianca Stupp
 
@@ -185,8 +129,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +136,20 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-high-speed-windows-viewer-for-images/"><u>[New] High-Speed Windows Viewer for Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-air-vs-pro-with-m1-optimal-laptop-for-your-needs/"><u>[Updated] 2024 Approved Air Vs. Pro with M1 Optimal Laptop for Your Needs?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-top-10-must-knows-before-elevating-systems/"><u>[Updated] Top 10 Must-Knows Before Elevating Systems</u></a></li>
+<li><a href="https://solve-news.techidaily.com/como-convertir-archivos-wma-en-formato-swf-sin-coste-con-movavi-online/"><u>Cómo Convertir Archivos WMA en Formato SWF Sin Coste Con Movavi Online</u></a></li>
+<li><a href="https://solve-news.techidaily.com/effortless-audio-file-transformation-convert-your-m4a-files-to-flv-without-costs-using-our-web-service/"><u>Effortless Audio File Transformation - Convert Your M4A Files to FLV Without Costs Using Our Web Service</u></a></li>
+<li><a href="https://solve-news.techidaily.com/gratuito-convertitore-di-immagini-online-movimaker/"><u>Gratuito Convertitore Di Immagini Online: MoviMaker</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-choosing-the-right-format-boosting-your-youtube-videos-performance/"><u>In 2024, Choosing the Right Format – Boosting Your YouTube Videos’ Performance</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-top-10-photo-editing-software-options-beyond-windows-10-photos/"><u>In 2024, Top 10 Photo Editing Software Options Beyond Windows 10 Photos</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-access-free-amd-gpio-hardware-interface-driver-downloads-available/"><u>Quick Access: Free AMD GPIO Hardware Interface Driver Downloads Available</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transform-ogg-audiovideo-to-avi-without-cost-using-our-web-based-tool/"><u>Transform OGG Audio/Video to AVI Without Cost Using Our Web-Based Tool!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transformer-des-fichiers-apng-en-gif-facilement-avec-movavi-en-ligne-gratuit/"><u>Transformer Des Fichiers APNG en GIF Facilement Avec Movavi en Ligne Gratuit</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-signs-of-phony-buddy-bids-online/"><u>Unveiling the Signs of Phony Buddy Bids Online</u></a></li>
+<li><a href="https://solve-news.techidaily.com/swf-gif/"><u>무료 SWF 변환기: 효과적인 매뉴얼 GIF 생성 방법 – 모바이브 가이드</u></a></li>
+</ul></div>
 

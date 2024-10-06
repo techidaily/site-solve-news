@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing the AP Process: Enhancing Efficiency Through AI - Insights From ABBYY"
-date: 2024-09-10T09:58:44.142Z
-updated: 2024-09-11T09:58:44.142Z
+date: 2024-09-28T22:19:51.384Z
+updated: 2024-10-06T01:27:31.469Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c1db4ec27c5136dcd8d29377fc669f9488ff5fcb91d758bff8fe15d9459484d0.jpg
@@ -10,26 +10,6 @@ thumbnail: https://thmb.techidaily.com/c1db4ec27c5136dcd8d29377fc669f9488ff5fcb9
 ## Revolutionizing the AP Process: Enhancing Efficiency Through AI - Insights From ABBYY
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Transforming Accounts Payable with Artificial Intelligence
 
@@ -47,19 +27,12 @@ Organizations are seeing the promise of consumer-AI capabilities within the ente
 
 The biggest challenge to achieving quick results, according to Big Four firm PwC, is the availability of large volumes of labeled data to train the system. Invoices are a prime example of large volumes of labeled data, and represent an opportune area to initiate AI-enabling technology. Here are tangible ways AI can enhance accounts payable and show immediate benefits.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 1\. Beyond Invoice Automation
 
@@ -67,37 +40,23 @@ Eliminating paper is the first step towards the digital transformation of AP. Ma
 
 The next generation of machine learning in AP includes the intelligent extraction of line and field data that incorporates the understanding of the overall structure of an invoice. Machine learning technology allows the system to recognize patterns, such as when a certain general ledger code is applied to a certain invoice; and learn overall structure of an invoice in order to extract all the meaningful data automatically. The system will learn these patterns and will suggest codes to the users coding them or find all the totals, amounts, and details contained within the invoice. AI recognizes the result and knows how to process, validate and recommend this data. This will reduce the amount of time AP spends on keying and correcting data.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 2\. Lean IT support
 
 A large IT staff that can code and implement time-consuming algorithms and workflows is not a luxury that most organizations can afford. This is where robotic process automation and AI expedite the process by enabling AP operators to train systems with user-friendly interfaces. Training allows the operator to act as a facilitator of intelligence back into the application, thus eliminating the need for IT resources.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 3\. Smarter Decisions
 
@@ -113,20 +72,6 @@ Integrating AI within accounts payable (or in any part of the enterprise) is pos
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -135,25 +80,12 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Like, share or repost
 
@@ -209,8 +141,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -218,4 +148,16 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-mastering-privacy-settings-a-guide-to-discretion-in-streaming/"><u>[New] Mastering Privacy Settings A Guide to Discretion in Streaming</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-soundscapes-synergy-video-and-music-pairing/"><u>[Updated] In 2024, Soundscapes Synergy Video and Music Pairing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-techniques-for-your-windows-11-walls/"><u>In 2024, Innovative Techniques for Your Windows 11 Walls</u></a></li>
+<li><a href="https://solve-news.techidaily.com/iphone-document-digitization-scan-ocr-and-save-as-pdfjpg-with-finereader-app/"><u>IPhone Document Digitization: Scan, OCR, and Save as PDF/JPG with FineReader App</u></a></li>
+<li><a href="https://solve-news.techidaily.com/leveraging-advanced-automation-the-power-of-the-latest-cookiebot-solutions/"><u>Leveraging Advanced Automation - The Power of the Latest Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-news.techidaily.com/leveraging-cookiebot-technology-for-superior-marketing-analytics-and-personalization/"><u>Leveraging Cookiebot Technology for Superior Marketing Analytics & Personalization</u></a></li>
+<li><a href="https://solve-news.techidaily.com/milaha-enhances-invoice-management-abbyy-fournxt-and-blue-prism-collaborate-for-efficiency/"><u>Milaha Enhances Invoice Management: ABBYY, FourNxt & Blue Prism Collaborate for Efficiency</u></a></li>
+<li><a href="https://network-issues.techidaily.com/neutralizing-screen-volatility-pro-7-guide/"><u>Neutralizing Screen Volatility: Pro 7 Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-your-traffic-techniques-against-bots-for-2024/"><u>Triple Your Traffic Techniques Against Bots for 2024</u></a></li>
+</ul></div>
 

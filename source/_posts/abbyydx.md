@@ -1,43 +1,15 @@
 ---
 title: ABBYYによる世界的なデジタル変革(DX)現状分析プロジェクト
-date: 2024-09-10T09:58:44.467Z
-updated: 2024-09-11T09:58:44.467Z
+date: 2024-09-29T22:49:21.156Z
+updated: 2024-10-05T17:14:51.434Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d45741490d50d66c52b24ae9074.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## ABBYYによる世界的なデジタル変革(DX)現状分析プロジェクト
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY、グローバルでデジタルトランスフォーメーション（DX）の実態調査を実施
 
@@ -45,33 +17,12 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 日本企業のDXの成功を阻む、経営陣と現場マネージメントの認識の差が浮き彫りに
 
@@ -113,19 +64,12 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
 
 [![](https://static1.abbyy.com/abbyycommedia/34336/infographics-outlook-on-digital-transformation-jp.jpg)](https://www.abbyy.com/media/34336/infographics-outlook-on-digital-transformation-jp.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 【調査方法】
 
@@ -149,8 +93,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -158,4 +100,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-cross-platform-hulu-playback-mastery-a-how-to-guide/"><u>[New] 2024 Approved Cross-Platform Hulu Playback Mastery - A How-To Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-professional-video-tweaks-with-these-top-8-free-editing-apps/"><u>[Updated] 2024 Approved Professional Video Tweaks with These Top 8 Free Editing Apps</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-virtual-disk-startup-issues-in-windows-disk-manager/"><u>Addressing Virtual Disk Startup Issues in Windows Disk Manager</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-fueled-personalization-enhancing-user-experience-with-smart-analytics/"><u>Cookiebot-Fueled Personalization: Enhancing User Experience with Smart Analytics</u></a></li>
+<li><a href="https://solve-news.techidaily.com/digital-document-transformation-strategies-for-insurance-firms-and-intermediaries/"><u>Digital Document Transformation Strategies for Insurance Firms and Intermediaries</u></a></li>
+<li><a href="https://solve-news.techidaily.com/drive-more-traffic-with-automated-crawler-enhance-your-site-via-cookiebot/"><u>Drive More Traffic with Automated Crawler: Enhance Your Site via Cookiebot</u></a></li>
+<li><a href="https://solve-news.techidaily.com/effective-strategies-leveraging-contract-analytics-insights-from-the-abbyy-experience/"><u>Effective Strategies: Leveraging Contract Analytics - Insights From the ABBYY Experience</u></a></li>
+<li><a href="https://solve-news.techidaily.com/emerging-trends-in-ai-exploring-the-future-of-technology/"><u>Emerging Trends in AI: Exploring the Future of Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-digital-experiences-using-cutting-edge-cookiebot-solutions/"><u>Enhance Digital Experiences Using Cutting-Edge Cookiebot Solutions</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-corsair-void-pro-driver-software-simple-download-and-install-tutorial-for-windows-machines/"><u>Get the Corsair Void Pro Driver Software: Simple Download & Install Tutorial for Windows Machines</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-enhancing-visuals-tips-for-shooting-and-editing-slow-motion-content-on-instagram/"><u>In 2024, Enhancing Visuals Tips for Shooting and Editing Slow Motion Content on Instagram</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-realme-11-pro-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Realme 11 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigating-social-media-clean-up-when-and-how-to-remove-x-previously-twitter-followers/"><u>Navigating Social Media Clean-Up: When & How to Remove X (Previously Twitter) Followers</u></a></li>
+<li><a href="https://discover-data.techidaily.com/simple-steps-for-seamless-screen-recording-in-windows-11/"><u>Simple Steps for Seamless Screen Recording in Windows 11</u></a></li>
+</ul></div>
 

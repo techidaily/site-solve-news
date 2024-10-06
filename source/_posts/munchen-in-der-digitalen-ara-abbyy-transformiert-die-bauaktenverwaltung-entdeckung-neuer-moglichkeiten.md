@@ -1,63 +1,21 @@
 ---
 title: "München in Der Digitalen Ära: ABBYY Transformiert Die Bauaktenverwaltung – Entdeckung Neuer Möglichkeiten"
-date: 2024-09-10T09:58:44.123Z
-updated: 2024-09-11T09:58:44.123Z
+date: 2024-09-29T16:47:21.307Z
+updated: 2024-10-06T02:01:38.408Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b79165ba9ef446402f78df39c0ae5aec29c669cdb8669a7402e153be3d685b74.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## München in Der Digitalen Ära: ABBYY Transformiert Die Bauaktenverwaltung – Entdeckung Neuer Möglichkeiten
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Stadt München setzt bei der Digitalisierung von Bauakten auf ABBYY
 
 10\. Mai 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### _Automatisierte Antragsklassifizierung, -Erfassung und Archivierung verkürzt die Bearbeitungszeit von Bauanträgen signifikant_
 
@@ -112,8 +70,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -121,4 +77,27 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-how-to-fix-obs-full-screen-not-working-issue/"><u>[New] 2024 Approved How To Fix OBS Full Screen Not Working Issue?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-introduce-dynamic-blurring-to-pics-in-ps/"><u>[New] In 2024, Introduce Dynamic Blurring to Pics in PS</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-excursion-videography-tools-compilation/"><u>[Updated] Excursion Videography Tools Compilation</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-update-hp-deskjet-2755e-printer-driver-on-windows-with-ease/"><u>Download & Update HP DeskJet 2755E Printer Driver on Windows with Ease</u></a></li>
+<li><a href="https://program-issues.techidaily.com/effortless-guide-for-repairing-corrupt-disks-on-steam-platform/"><u>Effortless Guide for Repairing Corrupt Disks on Steam Platform</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ensuring-data-protection-as-an-sco-meet-milos-savic-of-abbyy/"><u>Ensuring Data Protection as an SCO - Meet Miloš Savić of ABBYY</u></a></li>
+<li><a href="https://solve-news.techidaily.com/future-of-work-and-robotic-process-automation-insights-from-the-abbyy-ebook-unveiling-tomorrows-job-landscape/"><u>Future of Work and Robotic Process Automation: Insights From the ABBYY eBook - Unveiling Tomorrow's Job Landscape</u></a></li>
+<li><a href="https://solve-news.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-seo-success/"><u>Harnessing the Power of Cookiebot for Superior SEO Success</u></a></li>
+<li><a href="https://solve-news.techidaily.com/how-abbyys-content-intelligence-converts-legal-documents-into-valuable-insights-transforming-contract-management/"><u>How ABBYY's Content Intelligence Converts Legal Documents Into Valuable Insights: Transforming Contract Management</u></a></li>
+<li><a href="https://solve-news.techidaily.com/improve-your-websites-interactivity-using-cutting-edge-cookiebot-solutions/"><u>Improve Your Website's Interactivity Using Cutting-Edge Cookiebot Solutions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-samsung-galaxy-z-fold-5-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Samsung Galaxy Z Fold 5 to PC? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/investissements-massifs-dans-lautomatisation-par-les-entreprises-francaises-en-2019-reveil-pour-une-strategie-et-des-competences-ameliorees-analyse-abbyy/"><u>Investissements Massifs Dans L'Automatisation Par Les Entreprises Françaises en 2019 Reveil Pour Une Stratégie Et Des Compétences Améliorées – Analyse ABBYY</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Website Optimization: Boosting Performance and Engagement"
-date: 2024-08-25T21:38:25.656Z
-updated: 2024-08-26T21:38:25.656Z
+date: 2024-10-03T00:46:13.452Z
+updated: 2024-10-05T17:00:47.085Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1fec27f12efa09e4c48a38543461cae6de40c3455f6fddf973f89dc7d1b93e29.jpg
@@ -19,28 +19,39 @@ January 18, 2023
 
 « L’IDP est mort, vive l’IDP » – cette phrase fait écho au sentiment de transformation et de continuité. Tout comme lorsque l’on proclamait « le roi est mort, vive le roi », nous assistons à un moment historique dans le domaine de l’IDP (traitement intelligent des documents). Ce n’est pas la fin, c’est une renaissance, une métamorphose vers quelque chose de plus puissant et significatif pour l’avenir de l’IA (intelligence artificielle).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## L’évolution du traitement intelligent des documents (IDP)
 
 Au cœur de cette transformation, une technologie que nous connaissons depuis des décennies : la reconnaissance optique de caractères (OCR). Autrefois simple outil de numérisation de texte, l’OCR joue aujourd’hui un rôle crucial dans l’entraînement des LLM (large language models), avec des données de grande qualité. Cette évolution d’un simple outil de conversion de texte vers un fournisseur élaboré de données illustre l’adaptabilité et la pertinence sur la durée des technologies d’IDP. L’ancien IDP ouvre la voie à une nouvelle ère où précision et contexte sont primordiaux.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ### Applications et défis dans le monde réel
 
 Today's [L'OCR](https://tools.techidaily.com/abbyy/products/) d’aujourd’hui ne consiste pas à juste lire du texte : il s’agit aussi de le comprendre dans son intégralité. Les entreprises exigent un plus grand niveau de précision et plus d’informations tirées des données, ce qui nécessite que les technologies d’IDP soient plus avancées et nuancées. Cependant, cette évolution n’est pas sans poser des problèmes. Cet équilibre entre précision et compréhension du contexte devient essentiel. Comment pouvons-nous garantir que les données qui alimentent les systèmes d’IA sont non seulement justes, mais également pertinentes par rapport au contexte ?
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### L’avenir du Traitement Intelligent des Documents (IDP)
 
 L’avenir de l’IDP repose dans sa capacité non seulement à évoluer, mais aussi à révolutionner la façon dont nous pensons les données et l’IA. Il s’agit de créer des systèmes qui non seulement traitent les documents mais qui les comprennent, en extrayant non seulement les données mais aussi les informations. Ce nouvel IDP sera la pierre angulaire du paysage de l’IA, en constante évolution, et un élément essentiel pour développer des systèmes plus intelligents, plus efficaces et plus intuitifs. 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Les rouages internes de l’IDP moderne
 
 Alors que nous abordons cette nouvelle ère de l’IDP, il est essentiel de comprendre les avancées technologiques qui permettent cette transformation. Au cœur du [traitement intelligent et moderne des documents,](https://tools.techidaily.com/abbyy/products/) il y a son intégration aux technologies d’IA de pointe, en particulier dans le cadre du machine learning et du traitement du langage naturel.
@@ -57,9 +68,6 @@ L’intégration du traitement du langage naturel (NLP) permet à l’IDP de fra
 
 La beauté des systèmes modernes d’IDP réside dans leur capacité à apprendre et à se perfectionner en permanence. Alimentés par du feedback, ces systèmes peuvent ajuster leurs algorithmes, s’adapter à de nouveaux types de documents et améliorer leur précision au fil du temps. Ce processus d’apprentissage continu garantit que l’IDP reste pertinent et efficace, même à mesure que les types et formats de documents évoluent.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## Le rôle des données de grande qualité pour l’entraînement des large language models (LLM)
 
 Comprendre comment des LLM tels que GPT-4, Claude, Llama, ou d’autres sont entraînés grâce à des données tirées de l’IDP permet de comprendre la relation symbiotique entre ces technologies. Voici le découpage du processus :
@@ -85,8 +93,12 @@ Ce processus de formation nécessite d’exposer le LLM à de grandes quantités
 Une fois entraîné, le LLM subit des tests rigoureux avant validation. Cela comprend la vérification de sa capacité à comprendre et à générer du langage dans différents domaines, styles, et formats. Le feedback tiré de cette phase alimente à son tour la boucle de formation du LLM pour affiner encore ses fonctionnalités.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## À l’aube d’une nouvelle ère
 
 Déclarer « l’IDP est mort, vive l’IDP » n’est pas une contradiction, plutôt l’affirmation de la nature résiliente et évolutive de cette technologie. Ce que l’on connaissait comme étant l’IDP s’est transformé pour céder la place à une partie plus évoluée et plus intégrée de l’écosystème de l’IA. C’est un formidable moment pour faire partie de cette aventure, l’aube d’une nouvelle ère du traitement des documents et de l’intelligence artificielle. 
@@ -97,9 +109,6 @@ Découvrez pourquoi ABBYY a été désigné leader de l’IDP pour la quatrième
 
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 Maxime Vermeir
 
 Directeur Senior de la stratégie IA 
@@ -158,8 +167,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -167,4 +174,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-the-gamers-playbook-4-essential-steps-for-recording-games/"><u>[New] The Gamer's Playbook 4 Essential Steps for Recording Games</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unbeatable-accessories-elevating-vr-games/"><u>[New] Unbeatable Accessories Elevating VR Games</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-cross-platform-guide-to-transforming-photographic-genders-online/"><u>[Updated] Cross-Platform Guide to Transforming Photographic Genders Online</u></a></li>
+<li><a href="https://solve-news.techidaily.com/10-simple-steps-transforming-your-dvds-into-mp4-format-on-windows-11-and-mac/"><u>10 Simple Steps: Transforming Your DVDs Into MP4 Format on Windows 11 and Mac</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-reimagining-pc-life-with-windows-11-setup/"><u>2024 Approved Reimagining PC Life with Windows 11 Setup</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725287466373-2024/"><u>2024予約版：日本の人気アニメ動画配信サービスランキング！全てが無料提供</u></a></li>
+<li><a href="https://solve-news.techidaily.com/authentic-winx-download-platform-complimentary-access-to-top-quality-dvd-ripper-and-hd-converter-applications/"><u>Authentic WinX Download Platform: Complimentary Access to Top-Quality DVD Ripper & HD Converter Applications</u></a></li>
+<li><a href="https://solve-news.techidaily.com/como-utilizar-la-inteligencia-artificial-de-winxvideo-para-mejorar-y-revertir-fotografias-en-calidad-4k-8k-e-imax/"><u>Cómo Utilizar La Inteligencia Artificial De Winxvideo Para Mejorar Y Revertir Fotografías en Calidad 4K, 8K E IMAX</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-accessibility-with-simple-steps-for-adding-transcripts-to-youtube-content/"><u>Enhance Accessibility with Simple Steps for Adding Transcripts to YouTube Content</u></a></li>
+<li><a href="https://games-able.techidaily.com/expert-reviews-steam-deck-models/"><u>Expert Reviews: Steam Deck Models</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/leapfrogging-into-digital-marketing-establishing-a-yt-channel-on-mobile/"><u>Leapfrogging Into Digital Marketing Establishing a YT Channel on Mobile</u></a></li>
+<li><a href="https://os-tips.techidaily.com/review-of-the-twelve-south-butterfly-dual-function-power-bank-with-magsafe-perfect-for-on-the-go-charging/"><u>Review of the Twelve South Butterfly Dual-Function Power Bank with MagSafe - Perfect for On-the-Go Charging</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-downloading-your-favorite-instagram-videos-across-all-devices/"><u>Step-by-Step Guide: Downloading Your Favorite Instagram Videos Across All Devices</u></a></li>
+<li><a href="https://solve-news.techidaily.com/streamline-your-video-processing-encode-h265-and-h2/"><u>Streamline Your Video Processing: Encode H.265 And H.2</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-13-gratis-dvd-spieler-die-mit-windows-11-kompatibel-sind/"><u>Top 13 Gratis DVD-Spieler, Die Mit Windows 11 Kompatibel Sind</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-premier-sound-storylines-for-2024/"><u>Top Premier Sound Storylines for 2024</u></a></li>
+<li><a href="https://fox-within.techidaily.com/top-strategies-for-implementing-efficient-rapid-development-approaches/"><u>Top Strategies for Implementing Efficient Rapid Development Approaches</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725290605544-winx-dvd-ripper-platinumdvd/"><u>WinX DVD Ripper Platinumを使って動画からDVDへの書き込み手順 - 初学者ガイド</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725288731273-winx-dvd/"><u>WinX DVD 최신 소프트웨어 구성 단계를 이해하는 매우 유용한 개인 지침</u></a></li>
+</ul></div>
 
