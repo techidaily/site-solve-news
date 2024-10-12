@@ -1,7 +1,7 @@
 ---
 title: ABBYY IDP Global Trend 分析と成功事例について
-date: 2024-08-25T21:39:59.692Z
-updated: 2024-08-26T21:39:59.692Z
+date: 2024-10-07T22:11:09.342Z
+updated: 2024-10-11T23:48:54.083Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e300204a9c5c4ef99d0dbdbfe019e1c08c97d2c1f2aff2ef7a7d48de12972255.jpg
@@ -57,13 +57,24 @@ ABBYYは、2023年1月から3月までの初期データに基づき、今後、
 
 ABBYY IDPの導入とパーソナライズに関する詳細については、[www.abbyy.com/resources/report/global-intelligent-document-processing-trends-outcomes-report](https://tools.techidaily.com/abbyy/products/)にアクセスして、レポートの全編とインフォグラフィックをダウンロードしてください。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYYについて
 
 ABBYYは、貴社の情報を有効に運用するお手伝いをします。 当社のソリューションは、あらゆる文書、あらゆるフォーマット、あらゆる言語、あらゆる時間のデータを、インテリジェントな実用的成果へと変換します。 当社は、世界10,000社以上の企業をサポートし、その中にはフォーチュン500に名を連ねる企業も多数含まれており、最も重要な分野で当社との提携による恩恵を得ることができます。 ABBYYは、米国に本社を置き、世界14カ国にオフィスを構えるグローバル企業です。 詳細については、[www.abbyy.com/ja/company](https://tools.techidaily.com/abbyy/products/)をご参照ください。 [LinkedIn](https://www.linkedin.com/company/abbyy)、[Twitter](https://twitter.com/ABBYY%5FSoftware)、[Facebook](https://www.facebook.com/ABBYYsoft)でのフォローもお待ちしております。
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 
@@ -78,8 +89,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -87,4 +96,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-picture-perfect-instagram-carousel/"><u>[Updated] 2024 Approved Picture-Perfect Instagram Carousel</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-expert-tips-for-memorable-youtube-names-for-2024/"><u>[Updated] Expert Tips for Memorable YouTube Names for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-aligning-with-audience-habits-in-podcast-releases/"><u>[Updated] In 2024, Aligning with Audience Habits in Podcast Releases</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-taking-the-first-step-on-youtube-account-setup-for-2024/"><u>[Updated] Taking The First Step on YouTube Account Setup for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-secret-to-massive-engagement-3-top-tips-for-making-powerful-two-pov-reaction-videos-on-youtube/"><u>[Updated] Unlock the Secret to Massive Engagement 3 Top Tips for Making Powerful Two-POV Reaction Videos on YouTube</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-enhances-enterprise-focus-with-revamped-strategy-in-first-quarter-of-2019/"><u>Abbyy Enhances Enterprise Focus with Revamped Strategy in First Quarter of 2019</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-prasentiert-intelligente-echtzeitfahige-losungen-auf-der-mwc-2019/"><u>ABBYY Präsentiert Intelligente, Echtzeitfähige Lösungen Auf Der MWC 2019</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-proof-of-identity/"><u>ABBYY Proof of Identity - 初版オンライン身分確認ソリューションを発表します</u></a></li>
+<li><a href="https://solve-news.techidaily.com/automated-with-crawling-bots-enhance-your-websites-visibility/"><u>Automated with Crawling Bots: Enhance Your Website's Visibility</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-the-sky-advanced-drone-footage-editing/"><u>Navigating the Sky Advanced Drone Footage Editing</u></a></li>
+<li><a href="https://windows11.techidaily.com/stop-chrome-the-ultimate-guide-for-self-launched-tab-control/"><u>Stop Chrome: The Ultimate Guide for Self-Launched Tab Control</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/unblocking-hp-inkjet-on-windows-11-offline/"><u>Unblocking HP Inkjet on Windows 11 Offline</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/wi-fi-aifc-wav-online-and-desktop/"><u>무료 Wi-Fi를 사용한 AIFC WAV 파일을 Online에 대화형 읽기: 모바일 & Desktop 지원</u></a></li>
+</ul></div>
 

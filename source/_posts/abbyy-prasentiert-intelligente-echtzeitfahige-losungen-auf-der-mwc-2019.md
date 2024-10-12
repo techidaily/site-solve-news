@@ -1,7 +1,7 @@
 ---
 title: ABBYY Präsentiert Intelligente, Echtzeitfähige Lösungen Auf Der MWC 2019
-date: 2024-08-25T21:40:00.830Z
-updated: 2024-08-26T21:40:00.830Z
+date: 2024-10-10T17:06:48.832Z
+updated: 2024-10-11T18:53:46.121Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/965071db1f866296dbd6b7c6cdfb4395621995dd58483ee49e8397ad83cab217.jpg
@@ -73,8 +73,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -82,7 +80,27 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-blueprint-for-permanent-instagram-exit-strategy-for-2024/"><u>[New] The Ultimate Blueprint for Permanent Instagram Exit Strategy for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/beginners-guide-mastering-the-basics-of-retrieval-augmented-generation/"><u>Beginner's Guide: Mastering the Basics of Retrieval Augmented Generation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-honor-100-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Honor 100.</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-conversions-using-our-cutting-edge-cookiebot-analytics-system/"><u>Boost Conversions Using Our Cutting-Edge Cookiebot Analytics System</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-site-interaction-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Boost Site Interaction with the Advanced Capabilities of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-your-sites-traffic-with-the-advanced-capabilities-of-cookiebot/"><u>Boost Your Site's Traffic with the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ceo-ulf-perssons-address-abbyy-groups-strategic-response-to-the-ongoing-covid-19-pandemic/"><u>CEO Ulf Persson's Address: ABBYY Group's Strategic Response to the Ongoing COVID-19 Pandemic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-eloquence-top-tutors-for-articulation-skills/"><u>Expressive Eloquence: Top Tutors for Articulation Skills</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-honor-90-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-guide-to-affordable-vector-art-websites/"><u>In 2024, Ultimate Guide to Affordable Vector Art Websites</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unraveling-the-top-9-free-video-logo-creation-software-list/"><u>In 2024, Unraveling The Top 9 Free Video Logo Creation Software List</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-divide-and-conquer-the-best-free-wmv-video-splitters-for-2024/"><u>Updated Divide and Conquer The Best Free WMV Video Splitters for 2024</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "CEO Ulf Persson's Address: ABBYY Group's Strategic Response to the Ongoing COVID-19 Pandemic"
-date: 2024-08-25T21:40:08.994Z
-updated: 2024-08-26T21:40:08.994Z
+date: 2024-10-07T16:46:58.270Z
+updated: 2024-10-11T16:43:17.694Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
@@ -38,8 +38,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -47,7 +45,25 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-haste-assessment-of-windows-documents/"><u>[New] Haste Assessment of Windows Documents</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-effortless-free-capture-of-your-android-world/"><u>[Updated] Effortless Free Capture of Your Android World</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-quick-start-applying-discord-spoilers-correctly/"><u>2024 Approved Quick Start Applying Discord Spoilers Correctly</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbau-von-einschrankungen-wie-abbyy-das-potenzial-von-sharepoint-fur-die-national-park-authority-unlockt/"><u>Abbau Von Einschränkungen: Wie ABBYY Das Potenzial Von SharePoint Für Die National Park Authority Unlockt</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-ocr-software-development-kit-optimierte-realzeitoptimierung-fur-dateneingabeaufgaben/"><u>ABBYY OCR Software Development Kit: Optimierte Realzeitoptimierung Für Dateneingabeaufgaben</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyy-unveils-new-features-in-abbyy-flexicapture-version-122/"><u>ABBYY Unveils New Features in ABBYY FlexiCapture Version 12.2</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyys-mobile-ocr-enhancement-seamless-salesforce-connectivity-added-to-android-business-card-scanner/"><u>ABBYY's Mobile OCR Enhancement: Seamless Salesforce Connectivity Added to Android Business Card Scanner</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1724313213010-abbyyidcscan/"><u>ABBYYとiDCScanの市場リーチャー分析:トップパフォーマーを解き明かす</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/easy-methods-how-to-transfer-pictures-from-apple-iphone-6s-plus-to-pc-drfone-by-drfone-transfer-from-ios/"><u>Easy Methods How To Transfer Pictures From Apple iPhone 6s Plus to PC | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/elevate-your-ps5-and-xbox-experience-with-top-tvs/"><u>Elevate Your PS5 and Xbox Experience with Top TVs</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Infinix Hot 40i | Dr.fone</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

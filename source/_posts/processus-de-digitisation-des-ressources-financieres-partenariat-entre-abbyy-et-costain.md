@@ -1,7 +1,7 @@
 ---
 title: "Processus De Digitisation Des Ressources Financières: Partenariat Entre ABBYY Et Costain"
-date: 2024-08-25T21:38:56.503Z
-updated: 2024-08-26T21:38:56.503Z
+date: 2024-10-10T22:17:05.268Z
+updated: 2024-10-11T21:50:03.522Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e9201916667eb608e7a9ffd3.jpg
@@ -60,8 +60,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -69,16 +67,27 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-photovisionharmony-synchronize-ios-plus-sierra-photos/"><u>[New] PhotovisionHarmony Synchronize iOS + Sierra Photos</u></a></li>
+<li><a href="https://solve-news.techidaily.com/capire-come-diminuire-il-peso-del-file-dei-filmati-in-alta-definizione-hd4k8k-con-un-abbassamento-del-90/"><u>Capire Come Diminuire Il Peso Del File Dei Filmati in Alta Definizione: HD/4K/8K Con Un Abbassamento Del 90%!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/find-the-perfect-deal-on-ipads-discounts-galore/"><u>Find the Perfect Deal on iPads : Discounts Galore</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-iphone-6s-backup-password-heres-what-to-do-by-drfone-ios/"><u>In 2024, Forgot iPhone 6s Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-lego-animation-masters-the-best/"><u>New 2024 Approved Lego Animation Masters The Best</u></a></li>
+<li><a href="https://solve-help.techidaily.com/step-by-step-tutorial-on-upgrading-your-mkv-files-for-optimal-apple-tv-compatibility-and-excellence/"><u>Step-by-Step Tutorial on Upgrading Your MKV Files for Optimal Apple TV Compatibility and Excellence</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-hevc-video-transcoder-software-compatible-with-windows-11-and-mac-os-x/"><u>Top HEVC Video Transcoder Software Compatible with Windows 11 and Mac OS X</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-picks-enjoy-stunning-360-degree-videos-stream-now/"><u>Top Picks: Enjoy Stunning 360-Degree Videos - Stream Now!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transforme-gratuitement-h265-hevc-vers-h264-sur-pc-and-mac-guides-complets-pour-windows-1011/"><u>Transformé Gratuitement H.265 HEVC Vers H.264 Sur PC & MAC : Guides Complets Pour Windows 10/11</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ultimate-guide-top-10-methods-for-shrinking-big-videos-before-sending-via-email/"><u>Ultimate Guide: Top 10 Methods for Shrinking Big Videos Before Sending via Email</u></a></li>
+<li><a href="https://driver-install.techidaily.com/what-to-do-when-windows-fails-driver-rollout/"><u>What to Do When Windows Fails Driver Rollout</u></a></li>
+<li><a href="https://discover-community.techidaily.com/winxdvd-user-guide-essential-tips-and-tricks-for-optimal-dvd-handling/"><u>WinXDVD User Guide - Essential Tips and Tricks for Optimal DVD Handling</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

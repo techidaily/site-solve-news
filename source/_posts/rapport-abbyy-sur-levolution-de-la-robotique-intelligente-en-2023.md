@@ -1,7 +1,7 @@
 ---
 title: Rapport ABBYY Sur L'évolution De La Robotique Intelligente en 2023
-date: 2024-08-25T21:40:43.895Z
-updated: 2024-08-26T21:40:43.895Z
+date: 2024-10-10T16:38:14.737Z
+updated: 2024-10-11T18:48:54.375Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081b5606c8c487c2ccf4f6d577.jpg
@@ -47,28 +47,46 @@ Pour plus de détails sur les investissements dans l'IA, le ROI attendu et attei
 
 ![](https://static1.abbyy.com/abbyycommedia/37807/infographic-economic-challenges-survey-fr.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Méthodologie
 
 Cette étude a été menée par Sapio Research en juillet 2023 pour le compte d'ABBYY. 1000 décideurs informatiques issus de 17 secteurs, notamment les services financiers, la santé, le transport/la logistique/la supply chain, l'assurance, le retail, le secteur gouvernemental/public ont été interrogés à travers les États-Unis, le Royaume-Uni, l'Allemagne et la France pour comprendre comment la stagnation économique mondiale actuelle a un impact sur les investissements dans l’intelligente automation, si et quelles technologies les organisations qu'ils prévoient d'adopter dans un avenir proche.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### À PROPOS D’ABBYY
 
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Contact presse
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Bianca Stupp
 
 _ABBYY_
@@ -83,8 +101,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -92,4 +108,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-secrets-of-6-video-categories-for-viewer-retention-for-2024/"><u>[New] Secrets of 6 Video Categories for Viewer Retention for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-streamline-content-sharing-a-complete-instagram-video-upload-guide-from-desktop/"><u>[Updated] 2024 Approved Streamline Content Sharing A Complete Instagram Video Upload Guide From Desktop</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-stop-losses-maintaining-seamless-obs-recording/"><u>[Updated] Stop Losses Maintaining Seamless OBS Recording</u></a></li>
+<li><a href="https://win-blog.techidaily.com/achieve-smooth-gameplay-in-fallout-76-advanced-solutions-to-overcome-low-fps-2023-strategies/"><u>Achieve Smooth Gameplay in Fallout 76: Advanced Solutions to Overcome Low FPS - 2023 Strategies</u></a></li>
+<li><a href="https://solve-news.techidaily.com/complete-set-of-macxdvd-tools-unlocked-secure-your-full-version-at-no-cost/"><u>Complete Set of MacXDVD Tools Unlocked: Secure Your Full Version at No Cost</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-updated-nvidia-drivers-for-geforce-rtx-t3090-on-windows-7-8-and-10-systems/"><u>Download Updated NVIDIA Drivers for GeForce RTX T3090 on Windows 7, 8 & 10 Systems</u></a></li>
+<li><a href="https://solve-news.techidaily.com/dvd-conversion-made-easy-enhance-your-videos-for-apple-products-with-editing-and-compression-tools/"><u>DVD Conversion Made Easy: Enhance Your Videos for Apple Products with Editing and Compression Tools</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-xiaomi-14-pro-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Xiaomi 14 Pro</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-revive-your-bricked-honor-play-7t-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Honor Play 7T in Minutes | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-infinite-gaming-space-10-ssds-hdds-for-ps5/"><u>In 2024, Infinite Gaming Space #10 SSDs, HDDs for PS5</u></a></li>
+<li><a href="https://solve-news.techidaily.com/iphone-document-scanning-and-conversion-effortless-ocr-with-pdfjpg-support-using-finereader/"><u>IPhone Document Scanning & Conversion: Effortless OCR with PDF/JPG Support Using FineReader</u></a></li>
+<li><a href="https://solve-news.techidaily.com/kristin-wagener-recognized-in-crns-2women-in-tech-for-2019-spotlight-on-abbyy/"><u>Kristin Wagener Recognized in CRN's 2#Women in Tech for 2019: Spotlight on ABBYY</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/live-stream-pro-multicam-integration-with-manycam-features/"><u>Live Stream Pro: MultiCam Integration with ManyCam Features</u></a></li>
+<li><a href="https://solve-news.techidaily.com/optimize-your-sites-engagement-using-cookiebot-driven-insights/"><u>Optimize Your Site's Engagement Using Cookiebot-Driven Insights</u></a></li>
+<li><a href="https://solve-news.techidaily.com/quick-financial-support-for-enterprises-amidst-the-pandemic-the-role-of-serimag-banks-and-abbyys-cutting-edge-technology/"><u>Quick Financial Support for Enterprises Amidst the Pandemic: The Role of Serimag, Banks, and ABBYY's Cutting-Edge Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/revolutionize-your-online-advertising-with-the-power-of-cookiebot-integration/"><u>Revolutionize Your Online Advertising with the Power of Cookiebot Integration</u></a></li>
+<li><a href="https://techtrends.techidaily.com/revolutionize-your-output-with-leading-ipad-tools-a-guide-to-enhanced-productivity-and-workflow-optimization-expert-advice-by-zdnet/"><u>Revolutionize Your Output with Leading iPad Tools: A Guide to Enhanced Productivity and Workflow Optimization | Expert Advice by ZDNET</u></a></li>
+<li><a href="https://solve-news.techidaily.com/speedy-mac-dvd-ripper-and-ipad-video-converter-ultimate-toolkit-for-quick-seamless-media-transfer/"><u>Speedy Mac DVD Ripper & iPad Video Converter: Ultimate Toolkit for Quick, Seamless Media Transfer</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transform-your-iphone-photos-into-editable-documents-using-ocr-discover-the-power-of-finereader-for-pdf-conversion/"><u>Transform Your iPhone Photos Into Editable Documents Using OCR - Discover the Power of FineReader for PDF Conversion!</u></a></li>
+</ul></div>
 

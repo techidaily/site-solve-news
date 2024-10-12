@@ -1,7 +1,7 @@
 ---
 title: Enhanced Analytics with Cookiebot Technology
-date: 2024-08-25T21:40:27.279Z
-updated: 2024-08-26T21:40:27.279Z
+date: 2024-10-10T20:47:30.678Z
+updated: 2024-10-11T16:02:04.884Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/94b7a174ed243f819c2a07dd5584017cb8f8706838828f60033ee3c2a4509767.jpg
@@ -24,6 +24,13 @@ As a Blue Prism technology partner, ABBYY enables Blue Prism customers to take a
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
 
 ![drawer image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-document-archiving/drawer-image.jpg?h=392&iar=0&w=696)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### How ABBYY and Blue Prism work together
 
@@ -60,43 +67,27 @@ ABBYY FlexiCapture Connector for Blue Prism is a VBO that provides the integrati
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/blue-prism-vector-logo_rev_120px.png?h=23&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Webpage](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
-##### News 
-
-#### Introducing Blue Prism Process Intelligence powered by ABBYY Timeline 
-
-Blue Prism integrates ABBYY Timeline within Blue Prism Capture to offer complete process and task discovery as a standard capability. 
-
-[Read the news](https://tools.techidaily.com/abbyy/products/)
-
-![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
-
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+##### News 
+
+#### Introducing Blue Prism Process Intelligence powered by ABBYY Timeline 
+
+Blue Prism integrates ABBYY Timeline within Blue Prism Capture to offer complete process and task discovery as a standard capability. 
+
+[Read the news](https://tools.techidaily.com/abbyy/products/)
+
+![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
+
 ![Brochure](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Brochure
 
 #### Blue Prism and ABBYY Timeline technology alliance 
@@ -106,8 +97,18 @@ Key features:
 ![Solution brief](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Solution brief 
 
 #### Modernizing the patient journey 
@@ -137,8 +138,12 @@ Blue Prism integrates ABBYY Timeline within Blue Prism Capture to offer complete
 ![Solution brief](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Solution brief 
 
 #### Modernizing the patient journey 
@@ -148,8 +153,12 @@ Blue Prism integrates ABBYY Timeline within Blue Prism Capture to offer complete
 ![Webpage](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### News 
 
 #### Introducing Blue Prism Process Intelligence powered by ABBYY Timeline 
@@ -170,15 +179,19 @@ Blue Prism integrates ABBYY Timeline within Blue Prism Capture to offer complete
 
 ![Solution brief](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Solution brief 
 
 #### Modernizing the patient journey 
 
 [Download solution brief](https://static3.abbyy.com/abbyycommedia/33029/solutionbrief-blueprism-abbyy-healthcare-en.pdf)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Schedule a demo](https://tools.techidaily.com/abbyy/products/)[Get in touch](https://tools.techidaily.com/abbyy/products/)
@@ -189,8 +202,6 @@ Blue Prism integrates ABBYY Timeline within Blue Prism Capture to offer complete
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -198,4 +209,21 @@ Blue Prism integrates ABBYY Timeline within Blue Prism Capture to offer complete
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-best-of-breed-exceptional-webcam-supports-for-2024/"><u>[New] Best Of Breed Exceptional Webcam Supports for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-nextv-networks-the-ultimate-streamers-global-guide/"><u>[New] NexTV Networks The Ultimate Streamer's Global Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-headset-havens-weighing-google-cardboard-against-samsung-gear-for-2024/"><u>[Updated] Headset Havens Weighing Google Cardboard Against Samsung Gear for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/conversione-gratuita-da-f4v-a-wmv-online-movavi/"><u>Conversione Gratuita Da F4V a WMV Online - Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enhanced-experience-optimize-your-site-with-smart-tracking-technology/"><u>Cookiebot-Enhanced Experience: Optimize Your Site with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enhanced-sites-optimized-through-automated-data-tracking/"><u>Cookiebot-Enhanced Sites: Optimized Through Automated Data Tracking</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enhanced-optimized-user-experience-with-advanced-tracking/"><u>Cookiebot-Enhanced: Optimized User Experience with Advanced Tracking</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enhancing-your-websites-performance-with-advanced-analytics/"><u>Cookiebot: Enhancing Your Website's Performance with Advanced Analytics</u></a></li>
+<li><a href="https://solve-news.techidaily.com/drive-more-leads-using-cookiebot-a-premier-digital-marketing-solution-for-seamless-analytics-and-automation/"><u>Drive More Leads Using Cookiebot: A Premier Digital Marketing Solution for Seamless Analytics and Automation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/from-still-shots-to-movies-mastering-logitech-webcam-videos-for-2024/"><u>From Still Shots to Movies Mastering Logitech Webcam Videos for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-az-recorder-expert-series-app-deep-dives/"><u>In 2024, AZ Recorder Expert Series App Deep Dives</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-nubia-red-magic-8s-proplus-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Nubia Red Magic 8S Pro+ Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/seamless-sound-dimming-guide-in-premiere-pro-for-2024/"><u>Seamless Sound Dimming Guide in Premiere Pro for 2024</u></a></li>
+</ul></div>
 

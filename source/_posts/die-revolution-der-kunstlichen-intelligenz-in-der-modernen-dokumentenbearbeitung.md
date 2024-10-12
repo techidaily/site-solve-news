@@ -1,7 +1,7 @@
 ---
 title: Die Revolution Der Künstlichen Intelligenz in Der Modernen Dokumentenbearbeitung
-date: 2024-08-25T21:40:22.680Z
-updated: 2024-08-26T21:40:22.680Z
+date: 2024-10-07T21:14:35.569Z
+updated: 2024-10-11T17:11:28.253Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a9f362c0c9844398bf0c3137c986e711e55f9d9899cc82e5e90b9af515ed9d20.jpg
@@ -19,27 +19,45 @@ January 18, 2023
 
 „IDP ist tot, es lebe IDP“ – ein Satz, der das Gefühl von Wandel und Kontinuität widerspiegelt. Wie in der historischen Proklamation „Der König ist tot, es lebe der König“ erleben wir einen entscheidenden Moment im Bereich der intelligenten Dokumentenverarbeitung (IDP). Dies ist nicht das Ende, es ist eine Wiedergeburt, eine Metamorphose in etwas, das für die Zukunft der künstlichen Intelligenz (KI) noch mächtiger und bedeutender ist.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Die Entwicklung der intelligenten Dokumentenverarbeitung (IDP)
 
 Im Zentrum dieses Wandels steht eine Technologie, die wir schon seit Jahrzehnten kennen – die optische Zeichenerkennung (OCR). Einst ein einfaches Werkzeug zur Digitalisierung von Text, spielt OCR heute eine entscheidende Rolle beim Training großer Sprachmodelle (LLM) mit hochwertigen Daten. Diese Entwicklung von einem einfachen Textkonvertierungstool zu einem hochentwickelten Datenlieferanten verdeutlicht die Anpassungsfähigkeit und die anhaltende Relevanz von IDP-Technologien. Die alte IDP ebnet den Weg für eine neue Ära, in der Präzision und Kontext von größter Bedeutung sind.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Anwendungen und Herausforderungen der realen Welt
 
 Bei der heutigen [OCR](https://tools.techidaily.com/abbyy/products/) geht es nicht nur darum, Texte zu lesen, sondern sie in ihrer Gesamtheit zu verstehen. Unternehmen verlangen nach höherer Genauigkeit und tieferen Dateneinblicken, was fortschrittlichere und differenziertere IDP-Technologien erforderlich macht. Diese Entwicklung ist jedoch nicht ohne Herausforderungen. Das Gleichgewicht zwischen Genauigkeit und kontextuellem Verständnis ist entscheidend. Wie stellen wir sicher, dass die in KI-Systeme eingespeisten Daten nicht nur korrekt, sondern auch kontextbezogen relevant sind?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Die Zukunft der intelligenten Dokumentenverarbeitung (IDP)
 
 Die Zukunft der IDP liegt in ihrer Fähigkeit, sich nicht nur weiterzuentwickeln, sondern die Art und Weise, wie wir über Daten und KI denken, zu revolutionieren. Es geht darum, Systeme zu schaffen, die Dokumente nicht nur verarbeiten, sondern sie auch verstehen und nicht nur Daten, sondern auch Erkenntnisse gewinnen. Diese neue IDP wird der Eckpfeiler in der sich ständig weiterentwickelnden KI-Landschaft sein, eine entscheidende Komponente beim Aufbau intelligenterer, effizienterer und intuitiverer Systeme. 
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Das Innenleben einer modernen IDP
 
 In dieser neuen Ära der IDP ist es wichtig, die technologischen Fortschritte zu verstehen, die diesen Wandel vorantreiben. Der Kern der [modernen intelligenten Dokumentenverarbeitung](https://tools.techidaily.com/abbyy/products/) liegt in der Integration mit fortschrittlichen KI-Techniken, insbesondere im Bereich des maschinellen Lernens und der Verarbeitung natürlicher Sprache.
@@ -57,22 +75,12 @@ Die Integration der Verarbeitung natürlicher Sprache (NLP) bringt IDP noch eine
 Das Schöne an modernen IDP-Systemen ist ihre Fähigkeit, ständig zu lernen und sich zu verbessern. Durch die Einbeziehung von Feedback-Schleifen können diese Systeme ihre Algorithmen verfeinern, sich an neue Dokumenttypen anpassen und ihre Genauigkeit im Laufe der Zeit verbessern. Durch diesen kontinuierlichen Lernprozess wird zudem sichergestellt, dass die IDP relevant und effektiv bleibt, auch wenn sich die Arten und Formate der Dokumente weiterentwickeln.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Die Rolle hochwertiger Daten beim Training großer Sprachmodelle (LLMs)
 
 Wenn man versteht, wie LLMs wie GPT-4, Claude, Llama und andere mit von IDP abgeleiteten Daten trainiert werden, wird die symbiotische Beziehung zwischen diesen Technologien deutlich. Hier finden Sie eine Aufschlüsselung des Prozesses:
@@ -97,9 +105,6 @@ Beim Trainingsprozess wird das LLM großen Datenmengen ausgesetzt, damit es lern
 
 Nach dem Training wird das LLM einer strengen Prüfung und Validierung unterzogen. Dazu gehört die Überprüfung der Fähigkeit, Sprache in verschiedenen Bereichen, Stilen und Formaten zu verstehen und zu erzeugen. Die Rückmeldungen aus dieser Phase fließen in den Trainingskreislauf ein und verfeinern die Fähigkeiten des LLM weiter.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Anbruch einer neuen Ära
 
 Die Aussage „IDP ist tot, es lebe IDP“ ist kein Widerspruch, sondern ein Beweis für die Widerstandsfähigkeit und Weiterentwicklung dieser Technologie. Was wir als IDP kannten, hat sich gewandelt, und an seine Stelle ist ein fortschrittlicherer, integralerer Teil des KI-Ökosystems getreten. Es ist eine aufregende Zeit, Teil dieser Reise zu sein und den Anbruch einer neuen Ära der intelligenten Dokumentenverarbeitung und der künstlichen Intelligenz mitzuerleben. 
@@ -110,9 +115,6 @@ Erfahren Sie, warum ABBYY zum vierten Mal in Folge zum IDP-Marktführer ernannt 
 
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -171,8 +173,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -180,4 +180,26 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-curbing-common-mishaps-youtube-short-edition/"><u>[Updated] Curbing Common Mishaps YouTube Short Edition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-8-mirrorless-cams-for-professional-videographers/"><u>[Updated] Essential 8 Mirrorless Cams for Professional Videographers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-masterclass-emulation-best-ps3-clones-on-your-computer/"><u>[Updated] In 2024, Masterclass Emulation Best PS3 Clones on Your Computer</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-win10-ultimate-screenshot-and-video-capture-kit/"><u>[Updated] Win10 Ultimate Screenshot & Video Capture Kit</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/best-of-the-best-a-detailed-look-at-every-available-ipad/"><u>Best of the Best: A Detailed Look at Every Available iPad</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/cutting-transportation-expenses-uber-or-cab/"><u>Cutting Transportation Expenses: Uber or Cab?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-tomtom-gopro-alternative-a-2023-review/"><u>In 2024, TomTom GoPro Alternative A 2023 Review</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/los-mejores-8-aplicaciones-gratuitas-con-inteligencia-artificial-para-rescatar-fotografias-antiguas-efimeramente-olvidadas/"><u>Los Mejores 8 Aplicaciones Gratuitas Con Inteligencia Artificial Para Rescatar Fotografías Antiguas Efímeramente Olvidadas</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mastering-online-presence-the-art-and-science-behind-effective-pages/"><u>Mastering Online Presence: The Art and Science Behind Effective Pages</u></a></li>
+<li><a href="https://solve-news.techidaily.com/optimizing-invoice-management-how-abbyy-and-m-files-can-revolutionize-your-business-operations/"><u>Optimizing Invoice Management: How ABBYY & M-Files Can Revolutionize Your Business Operations</u></a></li>
+<li><a href="https://solve-news.techidaily.com/overcoming-digital-shift-hurdles-at-abbyys-2017-technology-conference-expert-analysis-on-the-blog/"><u>Overcoming Digital Shift Hurdles at ABBYY's 2017 Technology Conference | Expert Analysis on the Blog</u></a></li>
+<li><a href="https://solve-news.techidaily.com/overcoming-obstacles-in-mobile-user-registration-insights-from-the-abbyy-guide/"><u>Overcoming Obstacles in Mobile User Registration: Insights From the ABBYY Guide</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-windows-store-error-code-0x80073cf3/"><u>Overcoming Windows Store Error Code 0X80073CF3</u></a></li>
+<li><a href="https://change-location.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/processus-dentreprises-motivent-les-francais-a-travailler-a-distance-a-changer-demploi/"><u>Processus D'Entreprises Motivent Les Français À Travailler À Distance À Changer D’Emploi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/processus-de-digitisation-des-ressources-financieres-partenariat-entre-abbyy-et-costain/"><u>Processus De Digitisation Des Ressources Financières: Partenariat Entre ABBYY Et Costain</u></a></li>
+<li><a href="https://solve-news.techidaily.com/seamless-scan-and-convert-textbooksdocuments-to-pdf-using-iphones-finereader-app/"><u>Seamless Scan & Convert Textbooks/Documents to PDF Using iPhone's FINEREADER App</u></a></li>
+<li><a href="https://solve-news.techidaily.com/taux-de-defection-eleve-au-cours-du-processus-dintegration-perspectives-des-entreprises/"><u>Taux De Défection Élevé Au Cours Du Processus D'intégration - Perspectives Des Entreprises</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transform-from-app-consumer-to-creator-overnight-master-the-art-of-no-code-app-development/"><u>Transform From App Consumer to Creator Overnight - Master the Art of No-Code App Development!</u></a></li>
+</ul></div>
 

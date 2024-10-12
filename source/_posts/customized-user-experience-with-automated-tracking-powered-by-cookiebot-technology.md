@@ -1,7 +1,7 @@
 ---
 title: "Customized User Experience with Automated Tracking: Powered by Cookiebot Technology"
-date: 2024-08-25T21:39:24.999Z
-updated: 2024-08-26T21:39:24.999Z
+date: 2024-10-08T23:54:47.799Z
+updated: 2024-10-11T17:04:30.917Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/41c40fc075ec41a6de89c571a5a74900b640b77fd911558c6dd5abd8173773bf.jpg
@@ -56,6 +56,13 @@ Le rapport [The State of Intelligent Automation Report, Drivers and Pain Point f
 
 Cette étude a été menée par Sapio Research en septembre 2022 pour le compte d’ABBYY. L’enquête a été menée auprès de 1 623 décideurs informatiques au Royaume-Uni, aux États-Unis, en France, en Allemagne et au Japon et met en évidence les réponses des gouvernements sur les défis et les moteurs auxquels les organisations sont confrontées avec l’onboarding numérique. L’enquête a également inclus des réponses de décideurs informatiques dans les secteurs de la banque, de la finance, du transport et de la logistique.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 10 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
@@ -63,15 +70,23 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Contact presse
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Bianca Stupp
 
 _ABBYY_
@@ -86,8 +101,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -95,4 +108,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-new-age-of-income-generation-for-youtube-visionaries/"><u>[New] 2024 Approved The New Age of Income Generation for YouTube Visionaries</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-accelerate-your-classic-gaming-top-choices-of-android-emulators-for-ps2/"><u>[New] In 2024, Accelerate Your Classic Gaming - Top Choices of Android Emulators for PS2</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-direct-youtube-tunes-to-mp3s-online-and-offline-options/"><u>[New] In 2024, Direct YouTube Tunes to MP3s Online & Offline Options</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-art-and-science-of-hand-movement-tracking/"><u>[New] The Art and Science of Hand Movement Tracking</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-snicker-scribbles-humorhub/"><u>[Updated] In 2024, Snicker Scribbles HumorHub</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1-boost-engagement-seamless-steps-for-adding-wav-files-on-youtube/"><u>1. Boost Engagement: Seamless Steps for Adding WAV Files on YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-tips-to-elevate-your-canva-projects-by-10x/"><u>2024 Approved Exclusive Tips to Elevate Your Canva Projects by 10X</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-30-latest-forgotten-free-speech-transcription-tools-for-macos/"><u>2024 Approved Top 30 Latest, Forgotten Free Speech Transcription Tools for macOS</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-the-landscape-of-online-storytelling-with-reels/"><u>Navigating the Landscape of Online Storytelling with Reels</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-to-removing-amazon-kindles-kfx-drm-and-converting-files-to-mobi-epub-pdf-azw3-formats/"><u>Step-by-Step Guide to Removing Amazon Kindle's KFX DRM & Converting Files to Mobi, Epub, Pdf, Azw3 Formats</u></a></li>
+<li><a href="https://solve-news.techidaily.com/unlock-advanced-features-in-kodi-a-comprehensive-guide-to-implementing-premiumize-for-an-elite-media-stream/"><u>Unlock Advanced Features in Kodi: A Comprehensive Guide to Implementing Premiumize for an Elite Media Stream</u></a></li>
+<li><a href="https://solve-news.techidaily.com/unlock-your-dvd-guide-to-bypassing-region-restrictions-in-the-usa/"><u>Unlock Your DVD: Guide to Bypassing Region Restrictions in the USA</u></a></li>
+<li><a href="https://solve-news.techidaily.com/wmvandroid/"><u>WMVビデオがAndroidスマートフォンで遊びやすく！カジュアルな方法</u></a></li>
+</ul></div>
 

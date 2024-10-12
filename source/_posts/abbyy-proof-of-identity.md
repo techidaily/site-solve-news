@@ -1,7 +1,7 @@
 ---
 title: ABBYY Proof of Identity - 初版オンライン身分確認ソリューションを発表します
-date: 2024-08-25T21:40:01.910Z
-updated: 2024-08-26T21:40:01.910Z
+date: 2024-10-09T19:32:49.253Z
+updated: 2024-10-11T21:26:18.175Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8dff629c3669eeacd81da2258d66f3b6e2ba5af06b80b9aa947e69afc78af4df.jpg
@@ -47,6 +47,13 @@ ABBYY Proof of Identityの詳細は、[こちら](https://tools.techidaily.com/a
 
 _1 Gartner、「Buyer’s Guide for Identity Proofing（身元保証のためのバイヤーズガイド）」（2021年4月7日発行）_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYYについて
 
 ABBYYはインテリジェント・オートメーションを推進するリーディング・カンパニーです。オートメーション・プラットフォームの原動力となるテクノロジーを提供することにより、人々の働き方やビジネス加速の方法に新しいビジョンをもたらしています。ABBYYのソリューションは、企業データを変換し、よりスマートかつ迅速な業務の遂行に必要なインサイトを提供します。 
@@ -60,8 +67,12 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 
@@ -77,8 +88,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -86,4 +95,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ick-the-best-days-to-post-on-youtube/"><u>[New] Pick the Best Days to Post on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-front-rows-of-recreation-beyond-the-sports-arena/"><u>[Updated] Front Rows of Recreation Beyond the Sports Arena</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-guide-maximizing-apple-podcast-listing-chances/"><u>[Updated] In 2024, Guide Maximizing Apple Podcast Listing Chances</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-taking-a-step-back-in-time-with-instagram-videos/"><u>[Updated] In 2024, Taking a Step Back in Time with Instagram Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-precision-and-perfection-a-guide-to-youtube-studio-video-edits-for-2024/"><u>[Updated] Precision and Perfection A Guide to YouTube Studio Video Edits for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/comprehensive-low-codeno-code-strategies-for-streamlining-invoice-management/"><u>Comprehensive Low-Code/No-Code Strategies for Streamlining Invoice Management</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-conversion-boost-your-sites-performance/"><u>Cookiebot-Driven Conversion: Boost Your Site's Performance</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-solutions-enhancing-your-websites-seo-and-analytics/"><u>Cookiebot-Driven Solutions: Enhancing Your Website's SEO and Analytics</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-driven-success-boosting-online-engagement-through-smart-data-tracking/"><u>Cookiebot-Driven Success: Boosting Online Engagement Through Smart Data Tracking</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enabled-enhancing-your-websites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhancing Your Website's Analytics and Personalization</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/explore-the-best-lgbtq-content-available-on-netflix-this-july-2024/"><u>Explore the Best LGBTQ Content Available on Netflix This July 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/meta-vs-omni-navigating-digital-realms/"><u>Meta Vs. Omni Navigating Digital Realms</u></a></li>
+</ul></div>
 

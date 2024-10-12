@@ -1,7 +1,7 @@
 ---
 title: Taux De Défection Élevé Au Cours Du Processus D'intégration - Perspectives Des Entreprises
-date: 2024-08-25T21:38:59.886Z
-updated: 2024-08-26T21:38:59.886Z
+date: 2024-10-04T18:22:48.932Z
+updated: 2024-10-11T19:17:23.002Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c54c6148123e508341809a9f8c11fb6ca2958cb786ab2471b34202053c6a9248.jpg
@@ -34,8 +34,12 @@ Les répercussions d’un onboarding déficient sur les activités des entrepris
 ![infographic-onboarding-survey-fr](https://static1.abbyy.com/abbyycommedia/36369/infographic-onboarding-survey-fr.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 23% des décideurs informatiques envisagent d’implémenter des technologies de Process Intelligence pour optimiser leur onboarding
 
 Pour optimiser leurs processus d'onboarding, les entreprises doivent s’appuyer sur des technologies qui permettent d'automatiser au maximum leurs opérations afin de les rendre plus efficaces. Elles doivent également pouvoir proposer un accompagnement humain dans la mise en place de ce processus. En combinant ces deux facteurs (technologie et humains), les entreprises offrent à leurs clients une expérience d’utilisation améliorée et gagnent ainsi en résilience. L’étude rapporte qu'aujourd'hui 85% des entreprises ont une stratégie d'onboarding alliant de l’humain et de la technologie. Seules 9% s’appuient à 100% sur le digital, et 4% sur l’humain.
@@ -43,8 +47,12 @@ Pour optimiser leurs processus d'onboarding, les entreprises doivent s’appuyer
 Dans le contexte inflationniste actuel, les organisations mesurent l’importance de l’onboarding. Pour limiter les effets négatifs qui pourraient l’affecter, celles-ci s'appuient sur des technologies de pointe. Les décideurs informatiques français sont 24% à avoir digitalisé la vérification d’identité, 24% utilisent des solutions d’Intelligent Document Processing et 20% des outils de RPA. À l'avenir, ils envisagent d’implémenter encore davantage ces solutions, notamment le Process Intelligence (23%) et la vérification d’identité (19%).
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 40% des entreprises pensent qu’avec un taux d'abandon réduit de 50% elles pourraient augmenter leurs revenus d’au moins 30%
 
 L’étude a permis de montrer que les organisations attendent qu’un meilleur onboarding améliore l’expérience utilisateur (31%), réduise le taux d'abandon (30%), attire de nouveaux clients (27%) et les fidélise (24%). Mais les entreprises ne pensent pas seulement aux bénéfices induits pour leurs clients mais également aux avantages pour leurs collaborateurs. Ainsi, l’amélioration du processus d’onboarding contribue à améliorer l’ensemble des interactions entre les collaborateurs et les clients (25%), et permet de réduire le travail pour les employés (24%).
@@ -59,34 +67,34 @@ _Hervé Laurandin, Directeur France chez ABBYY._
 
 Le nouveau rapport ABBYY State of Intelligent Automation vous donne un aperçu supplémentaire des moteurs et des contraintes de l'onboarding et vous montre comment vous pouvez mieux répondre aux attentes de vos clients. [Téléchargez le rapport détaillé ici](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Methodology
 
 Méthodologie : Cette étude a été menée par Sapio Research en octobre 2022 pour ABBYY auprès de 1 623 décideurs informatiques dans les secteurs des services financiers, de l'assurance, de la supply chain, du transport et de la logistique, des services publics et de la santé au Royaume-Uni, aux États-Unis, en France, en Allemagne et au Japon.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 10 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### Contact presse
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Eva-Maria Hufschmitt
 
 _ABBYY_
@@ -101,8 +109,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -110,4 +116,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-reimagining-blockbuster-favorites-7-swap/"><u>[New] In 2024, Reimagining Blockbuster Favorites - #7 Swap</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-learn-the-mechanics-behind-self-playing-videos-in-fb-for-2024/"><u>[Updated] Learn the Mechanics Behind Self-Playing Videos in Fb for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-maximizing-the-impact-of-outdoor-videos-live-streams-via-periscopefacebook/"><u>[Updated] Maximizing the Impact of Outdoor Videos Live Streams via Periscope/Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-reactivating-the-silenced-obs-video-feed/"><u>[Updated] Reactivating the Silenced OBS Video Feed</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1-bestlive-cam-app-professional-manycam-alternatives-for-streaming-and-virtual-backgrounds/"><u>1. BestLive Cam App: Professional ManyCam Alternatives for Streaming and Virtual Backgrounds</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-realme-gt-neo-5-se-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Realme GT Neo 5 SE Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-meizu-21-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Meizu 21 Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/best-manycam-alternatives-top-live-streaming-software-and-online-webcams/"><u>Best ManyCam Alternatives: Top Live Streaming Software and Online Webcams</u></a></li>
+<li><a href="https://solve-news.techidaily.com/compare-premium-virtual-camcorders-a-guide-to-professional-live-video-solutions-like-manycam/"><u>Compare Premium Virtual Camcorders: A Guide to Professional Live Video Solutions Like ManyCam</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-your-livestream-with-manycam-the-ultimate-virtual-camera-and-video-tool-for-online-broadcasting/"><u>Enhance Your Livestream with ManyCam: The Ultimate Virtual Camera and Video Tool for Online Broadcasting</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-your-livestreams-with-manycam-the-ultimate-online-broadcasting-solution/"><u>Enhance Your Livestreams with ManyCam: The Ultimate Online Broadcasting Solution</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-fixes-for-pc-freezing-while-playing-call-of-duty-warzone-tips-for-gamers/"><u>Expert Fixes for PC Freezing While Playing Call of Duty: Warzone - Tips for Gamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/expert-tips-on-basic-color-correction-in-photos-for-2024/"><u>Expert Tips on Basic Color Correction in Photos for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/latest-winx-dvd-ripper-platinum-version-release-notes-whats-new-and-enhanced/"><u>Latest WinX DVD Ripper Platinum Version Release Notes: What's New and Enhanced</u></a></li>
+<li><a href="https://solve-news.techidaily.com/live-streaming-made-easy-discover-the-power-of-manycam-as-a-virtual-webcam-and-hd-video-recording-tool/"><u>Live Streaming Made Easy: Discover the Power of ManyCam as a Virtual Webcam and HD Video Recording Tool</u></a></li>
+<li><a href="https://solve-news.techidaily.com/step-by-step-guide-adding-subtitles-to-your-dvds-using-simple-tools/"><u>Step-by-Step Guide: Adding Subtitles to Your DVDs Using Simple Tools</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-guide-to-the-ergodriven-topo-a-game-changing-anti-fatigue-mat-for-standing-workspaces/"><u>The Ultimate Guide to the Ergodriven Topo: A Game-Changing Anti-Fatigue Mat for Standing Workspaces</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For OnePlus Nord N30 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/winxvideo-ai-beschleunige-ihre-video-und-audio-konversionen-durch-gpu-leistung/"><u>Winxvideo AI – Beschleunige Ihre Video- Und Audio Konversionen Durch GPU Leistung</u></a></li>
+</ul></div>
 

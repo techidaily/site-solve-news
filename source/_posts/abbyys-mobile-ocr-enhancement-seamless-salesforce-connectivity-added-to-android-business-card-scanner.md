@@ -1,7 +1,7 @@
 ---
 title: "ABBYY's Mobile OCR Enhancement: Seamless Salesforce Connectivity Added to Android Business Card Scanner"
-date: 2024-08-25T21:39:10.632Z
-updated: 2024-08-26T21:39:10.632Z
+date: 2024-10-09T21:59:10.579Z
+updated: 2024-10-12T00:16:45.168Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d3919e525f4363ae8c9a19d25cba574e77e7ac0583b121f4d771b95a21f909e.jpg
@@ -61,8 +61,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -70,7 +68,25 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://solve-news.techidaily.com/easy-conversion-techniques-from-f4v-to-mp4-for-optimal-playback/"><u>Easy Conversion Techniques From F4V to MP4 for Optimal Playback</u></a></li>
+<li><a href="https://solve-news.techidaily.com/efficient-ways-to-reduce-iphone-video-sizes-for-optimal-storage/"><u>Efficient Ways to Reduce iPhone Video Sizes for Optimal Storage</u></a></li>
+<li><a href="https://solve-news.techidaily.com/elevate-your-content-from-standard-definition-to-hd-transform-720p-into-stunning-1080p-video-quality/"><u>Elevate Your Content From Standard Definition to HD - Transform 720P Into Stunning 1080P Video Quality!</u></a></li>
+<li><a href="https://games-able.techidaily.com/eliminating-windows-1011-writable-device-stall-0x887a0006/"><u>Eliminating Windows 10/11' Writable Device Stall (0X887A0006)</u></a></li>
+<li><a href="https://solve-news.techidaily.com/fast-and-user-friendly-guide-to-video-trimming/"><u>Fast & User-Friendly Guide to Video Trimming</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ft232r-usb-uart-driver-download-easily-and-quickly/"><u>FT232R USB UART Driver Download Easily & Quickly</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-vivo-x-flipmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Vivo X FlipMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-customizing-your-chromecasts-display-with-new-wallpaper/"><u>Step-by-Step Guide: Customizing Your Chromecast's Display with New Wallpaper</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlock-language-skills-without-spending-a-penny-9-must-try-learning-platforms/"><u>Unlock Language Skills Without Spending a Penny: 9 Must-Try Learning Platforms</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Samsung Galaxy S24+? | Dr.fone</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "「生命保険業務を最大限活用:ABBYフレックスキャプチャー®によるオペレーションのデジタル変革」"
-date: 2024-08-25T21:39:57.470Z
-updated: 2024-08-26T21:39:57.470Z
+date: 2024-10-10T21:10:37.234Z
+updated: 2024-10-11T19:57:48.093Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9c252b23b1e3ad8357c15bea477480a8c23a36edb5cd9b4be147d76d8870fe38.jpg
@@ -28,6 +28,13 @@ Insurance | Accounts Payable Automation
 #### お客様の概要
 
 ![第一生命保険株式会社](https://static1.abbyy.com/abbyycommedia/29840/dai-ichi-logo-168x80.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | 氏名     | 第一生命保険株式会社                                                  |
 | ------ | ----------------------------------------------------------- |
@@ -101,6 +108,13 @@ Insurance | Accounts Payable Automation
 
 ![12C Dai Ichi Content 750X375](https://static1.abbyy.com/abbyycommedia/29801/12c-dai-ichi-content-750x375.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
   
 紙の書類が残り、デジタル化が難航している業界も多いなか、ABBYY FlexiCaptureの担う役割についても岩元氏は期待を寄せる。
 
@@ -112,9 +126,23 @@ Insurance | Accounts Payable Automation
 
 [![請求書処理の自動化](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [請求書処理の自動化](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static5.abbyy.com/abbyycommedia/29803/12b-dai-ichi-cover-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/29738/customer-story-daiichi-ja.pdf "PDF版") [PDF版](https://static4.abbyy.com/abbyycommedia/29738/customer-story-daiichi-ja.pdf "PDF版") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [詳細を読む](https://static4.abbyy.com/abbyycommedia/29738/customer-story-daiichi-ja.pdf "PDF版") 
 
@@ -126,10 +154,6 @@ Insurance | Accounts Payable Automation
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。
@@ -142,8 +166,6 @@ Insurance | Accounts Payable Automation
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -151,4 +173,26 @@ Insurance | Accounts Payable Automation
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-innovative-metaverse-gags-and-their-creators/"><u>[Updated] 2024 Approved Innovative Metaverse Gags & Their Creators</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-beginners-guide-to-windows-11-audible-recording/"><u>[Updated] In 2024, Beginner's Guide to Windows 11 Audible Recording</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-essential-steps-to-compress-youtube-video-spaces/"><u>[Updated] In 2024, The Essential Steps to Compress YouTube Video Spaces</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-live-photos-for-beginners-an-iphone-guide/"><u>[Updated] Live Photos for Beginners An iPhone Guide</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1726222491784-avimov-movavi/"><u>無償AVI為MOV格式轉換 - 使用Movavi的適當方法</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/boom-in-the-loop-crafting-addictive-ig-videos/"><u>Boom in the Loop Crafting Addictive IG Videos</u></a></li>
+<li><a href="https://solve-news.techidaily.com/convertissez-facilement-vos-fichiers-m2p-en-versions-en-ligne-avec-moveavi-gratuit-un-outil-de-telechargement-sans-frais/"><u>Convertissez Facilement Vos Fichiers M2P en Versions en Ligne Avec MoveaVi Gratuit: Un Outil De Téléchargement Sans Frais</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-facebooks-chat-sounds-a-guide-to-soundmojis/"><u>Discover Facebook's Chat Sounds: A Guide to Soundmojis</u></a></li>
+<li><a href="https://solve-news.techidaily.com/free-online-conversion-transform-mkv-files-into-mp4-format-with-moveavi/"><u>Free Online Conversion: Transform MKV Files Into MP4 Format with MoveAVI</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-flash-dead-realme-gt-5-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Realme GT 5 Safely | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-transforming-tweets-into-animated-gifs-a-step-by-step-guide/"><u>In 2024, Transforming Tweets Into Animated GIFs A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-news.techidaily.com/melhores-metodos-para-combinar-clipes-de-video-no-windows-11-guia-completo/"><u>Melhores Métodos Para Combinar Clipes De Vídeo No Windows 11 – Guia Completo</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1721951490398-no-emoji-tweets-on-twitter-linuss-insight-revealed-trojans-explained-and-chatgpt-concerns-addressed/"><u>No Emoji Tweets on Twitter, Linus's Insight Revealed, Trojans Explained, & ChatGPT Concerns Addressed</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/proactive-policies-for-artificial-intelligence-management/"><u>Proactive Policies for Artificial Intelligence Management</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ri-codifica-professionale-da-vob-a-flv-con-movavi-strumenti-online-senza-costi/"><u>Ri-Codifica Professionale Da VOB a FLV Con Movavi: Strumenti Online Senza Costi!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-13-app-perfezionarsi-nel-disegno-di-loghi-senza-costi/"><u>Top 13 App Perfezionarsi Nel Disegno Di Loghi Senza Costi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/tranformation-gratuite-de-fichiers-m4a-en-mp4-sur-la-toile-un-guide-complet-movavi/"><u>Tranformation Gratuite De Fichiers M4A en MP4 Sur La Toile : Un Guide Complet - Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transformar-arquivos-em-rw2-gratuitamente-on-line-o-poder-do-conversor-da-movavi/"><u>Transformar Arquivos Em RW2 Gratuitamente On-Line: O Poder Do Conversor Da Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/trasforma-i-file-webm-in-formato-wma-gratuitamente-online-con-movavi/"><u>Trasforma I File Webm in Formato Wma Gratuitamente Online Con Movavi</u></a></li>
+</ul></div>
 

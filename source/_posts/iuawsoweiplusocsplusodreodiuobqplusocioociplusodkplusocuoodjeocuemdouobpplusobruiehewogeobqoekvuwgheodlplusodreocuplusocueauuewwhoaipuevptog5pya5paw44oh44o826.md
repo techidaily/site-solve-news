@@ -1,7 +1,7 @@
 ---
 title: "新型コロナによるビジネス面での脅威と社内プロセス改善戦略: 最新データ分析"
-date: 2024-08-25T21:39:45.525Z
-updated: 2024-08-26T21:39:45.525Z
+date: 2024-10-06T22:23:57.286Z
+updated: 2024-10-11T16:22:20.764Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33f7a6674447c8f7173ff1c687707de6ab2b192d47bf8afae9f7fe02b3355e59.jpg
@@ -29,6 +29,13 @@ thumbnail: https://thmb.techidaily.com/33f7a6674447c8f7173ff1c687707de6ab2b192d4
 
 驚いたのは、職場の課題に対するもう1つの主要な要因がプロセスであったことです。 効率性、コンプライアンス、そして、より良いビジネス成果を促進するために業務プロセスが用意されていることには、ほとんどの人が同意します。しかしながら、回答者のほぼ半数（48％）が、業務プロセスが仕事をより困難にした、つまり不十分であると非難し、それを理由に4人に1人が仕事を辞めたいと考えています。 別の36％は、プロセスが時間を無駄にし、プロセスを使えなくしたと述べています。
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### では、プロセスは従業員の仕事にどのように悪影響を及ぼしますか？ そして、これに対処するために何ができるでしょうか？
 
 答えは、多くの組織が、人々がシステム、アプリケーションと対話しながら異常値のイベントを処理するような方法ではなく、どうプロセスが流れるべきかの考えに基づいてプロセスを開発することにあります。 業務内の複数のプロセスを分析し、業務オペレーションと業務プロセスのデジタルプロセスモデル（「デジタルツイン」）を提供できる[プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/)を活用して、ABBYYはこの問題を解決します。
@@ -38,6 +45,19 @@ thumbnail: https://thmb.techidaily.com/33f7a6674447c8f7173ff1c687707de6ab2b192d4
 調査からわかったもう1つの興味深いことは、新型コロナウィルス感染拡大時のテクノロジーの導入でした。 回答者の企業の64％は、WFH（Work From Home, 在宅勤務）のストレスを軽減するために、ロックダウン中に初めて新しいテクノロジーとプロセスを迅速に採用しました。自動で紙をデジタル化してプロセスを支援するツールとこのツールを使った新規顧客申込処理は、回答者に成功したと見なされました（76％）。 これには、従業員のタスクとパフォーマンスを監視するためのツールも含まれていました。
 
 ![COVID Impact on Business, Employees](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 従業員がタスクを実行する方法を監視することは、タスクマイニングと呼ばれる、プロセスインテリジェンスの初期のカテゴリのものにあたります。 タスクマイニングを使用すると、ユーザの操作を収集して分析することにより、どのようにタスクをやりくりしているのかを理解できます。 このような深い理解は、プロセスを自動化、そして改善するのに役立ちます。 タスクマイニングはプロセスマイニングと類似していますが、システムのログファイルやビジネス指標ではなく、ユーザとアプリとの相互やり取りのデータを使用してプロセスを分析します。 [ABBYY Task Mining（英語版）](https://tools.techidaily.com/abbyy/products/) は、デスクトップ上のユーザインタラクションデータ（ユーザとアプリとの相互やり取りデータ）を分析し、システムイベントデータからマイニング（取り出）されたプロセスの詳細とシームレスにリンクします。これにより、プロセスを遅くしている反復的で非効率的なタスクとタスクシーケンスを特定し、適切な場所にリソースを割り当て、解決することが可能となります。
 
@@ -61,13 +81,24 @@ thumbnail: https://thmb.techidaily.com/33f7a6674447c8f7173ff1c687707de6ab2b192d4
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Bruce Orcutt
 
 Vice President of Product Marketing at ABBYY
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -122,8 +153,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -131,4 +160,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-operate-srt-audio-on-windowsmacos/"><u>[New] 2024 Approved Operate SRT Audio on Windows/macOS</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-transformative-techniques-to-enhance-your-powerpoint-recordings-for-2024/"><u>[New] Transformative Techniques to Enhance Your PowerPoint Recordings for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-cutting-through-the-clutter-mastering-social-media-videos-on-facebook/"><u>2024 Approved Cutting Through the Clutter Mastering Social Media Videos on Facebook</u></a></li>
+<li><a href="https://solve-news.techidaily.com/3gpp-mpeg-movavi/"><u>3GPP MPEG 변환을 위한 무료 온라인 도구 - Movavi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mp3m4b-movavi/"><u>無需付費，網上改變MP3成M4B - Movavi專業解決方案</u></a></li>
+<li><a href="https://solve-news.techidaily.com/convert-aiff-audio-files-to-ogg-fast-and-reliable-online-service-at-no-cost/"><u>Convert AIFF Audio Files to Ogg - Fast and Reliable Online Service at No Cost</u></a></li>
+<li><a href="https://solve-news.techidaily.com/guia-paso-a-paso-para-empezar-con-el-streaming-de-fortnite-en-windows-creadores-de-contenido/"><u>Guía Paso a Paso Para Empezar Con El Streaming De Fortnite en Windows - Creadores De Contenido</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-how-to-promote-youtube-videos-without-paying/"><u>In 2024, How to Promote YouTube Videos (Without Paying)</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mp4-vs-wmv-explicado-sus-principales-varias-caracteristicas/"><u>MP4 Vs. WMV Explicado: Sus Principales Varias Características</u></a></li>
+<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-google-pixel-8-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Google Pixel 8</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-sound-of-success-tailoring-audio-for-instagram-content/"><u>The Sound of Success Tailoring Audio for Instagram Content</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726028830976-windows-10mp4/"><u>フリーウェアによるWindows 10上でのMP4動画回転手順</u></a></li>
+</ul></div>
 

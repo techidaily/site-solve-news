@@ -1,7 +1,7 @@
 ---
 title: Introducing the Online Version of ABBYY's Acclaimed Business Card Scanner
-date: 2024-08-25T21:38:49.783Z
-updated: 2024-08-26T21:38:49.783Z
+date: 2024-10-10T22:31:12.822Z
+updated: 2024-10-11T21:27:04.088Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fbaa6ca73b5c5357b713260d15cd44fa4ef0636a4d72497c27eefd9717a1c743.jpg
@@ -61,8 +61,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -70,12 +68,27 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-ensuring-relevance-and-engagement-with-proper-fb-hashtags/"><u>[New] 2024 Approved Ensuring Relevance and Engagement with Proper FB Hashtags</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-innovative-ways-to-record-without-background-sounds/"><u>[New] 2024 Approved Innovative Ways to Record Without Background Sounds</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-beating-buffering-bars-in-twitch-broadcasts-today-for-2024/"><u>[New] Beating Buffering Bars in Twitch Broadcasts Today for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-entering-income-territory-with-a-thousand-followers/"><u>[Updated] In 2024, Entering Income Territory with a Thousand Followers</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725286373224-fps/"><u>「フレームレート調整が楽に！動画のFPS改ざんテクニック」</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-solutions-for-synaptics-touchpad-not-responding-to-scroll-gestures-on-windows-11/"><u>Effective Solutions for Synaptics Touchpad Not Responding to Scroll Gestures on Windows 11</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-xr-drfone-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725288931075-m4vmp4/"><u>M4VフォーマットとMP4形式:それらの主な違いを解読する</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/navigate-10-top-free-web-explorers-for-remote-collaboration-for-2024/"><u>Navigate 10 Top Free Web Explorers for Remote Collaboration for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/overcoming-kickasstorrent-closure-issues-quick-fixes/"><u>Overcoming KickassTorrent Closure Issues - Quick Fixes!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/qualitatsvollendung-top-10-wege-um-mkv-zu-mp4-mit-schneller-konvertierung-umzuwandeln/"><u>Qualitätsvollendung: Top 10 Wege, Um MKV Zu MP4 Mit Schneller Konvertierung Umzuwandeln</u></a></li>
+<li><a href="https://solve-news.techidaily.com/solved-troubleshooting-plays-on-videos-from-instagram-across-all-devices/"><u>Solved: Troubleshooting Plays on Videos From Instagram Across All Devices</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-to-fix-valheims-unresponsive-launches/"><u>Troubleshooting Tips to Fix Valheim's Unresponsive Launches</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

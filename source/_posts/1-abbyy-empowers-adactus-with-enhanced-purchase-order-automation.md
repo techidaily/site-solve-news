@@ -1,7 +1,7 @@
 ---
 title: 1. ABBYY Empowers Adactus with Enhanced Purchase Order Automation
-date: 2024-08-25T21:39:05.096Z
-updated: 2024-08-26T21:39:05.096Z
+date: 2024-10-05T20:29:12.525Z
+updated: 2024-10-11T18:03:28.716Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a7150b4ff2ea7550c12f390526178357d28d5879ccd1eca0b9ed1b9c559e12d9.jpg
@@ -25,6 +25,13 @@ Other | Accounts Payable Automation
 
 ![](https://static1.abbyy.com/abbyycommedia/15312/cs-adactus-556x303-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Adactus Housing Group](https://static2.abbyy.com/abbyycommedia/14441/adactus_155x80.jpg) 
@@ -40,6 +47,13 @@ Other | Accounts Payable Automation
 #### Partner Overview
 
 ![INVU](https://static1.abbyy.com/abbyycommedia/14443/invu_logo.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name                  | INVU                                   |
 | --------------------- | -------------------------------------- |
@@ -108,6 +122,13 @@ With this solution, Adactus has increased budgetary control and full oversight o
 
 [![Accounts Payable Automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static1.abbyy.com/abbyycommedia/15311/cs-adactus-360x162-2.jpg)](https://static1.abbyy.com/abbyycommedia/7347/case-study-adactus-2-real-estate-en.pdf "PDF version") [PDF version](https://static1.abbyy.com/abbyycommedia/7347/case-study-adactus-2-real-estate-en.pdf "PDF version") 
@@ -123,8 +144,12 @@ Share  True ?  : ""
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -137,8 +162,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -146,4 +169,20 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/nderstanding-the-dynamics-behind-youtube-video-rankings-for-2024/"><u>[New] Understanding the Dynamics Behind YouTube Video Rankings for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/44cm44kq44oz44op44kk44oz5psplus6ycb44gu6yyy55s75oml6acg44ks44kk44oj44cn/"><u>「オンライン放送の録画手順ガイド」</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1726028986576-and/"><u>「パソコンで見過ごされない！『今流行』の動画圧縮ツール&方法を教えます」</u></a></li>
+<li><a href="https://solve-news.techidaily.com/2-instant-access-to-premium-hits-from-soundcloud-download-your-favorites-without-cost/"><u>2) Instant Access to Premium Hits From SoundCloud – Download Your Favorites Without Cost!</u></a></li>
+<li><a href="https://solve-news.techidaily.com/5paw44gx44ge44k144o844ot44k55yip55so44gr5pya6ygp44gq44km44kn44ow44k144kk44oi44gu5yip55so55m76yyy44ks44kk44oj/"><u>新しいサービス利用に最適なウェブサイトご利用登録ガイド</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/easy-and-effective-method-for-avi-to-gif-with-help-from-filmora-for-2024/"><u>Easy and Effective Method for AVI-to-GIF with Help From Filmora for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/full-guide-navigating-the-world-of-final-cut-pro-for-2024/"><u>Full Guide Navigating the World of Final Cut Pro for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-install-the-latest-ios-beta-version-on-apple-iphone-11-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS Beta Version on Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-the-clouds-of-video-editing-best-drones-tools-ranked/"><u>In 2024, Navigating the Clouds of Video Editing Best Drones Tools Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semaine-francaise-comprendre-les-mots/"><u>La Semaine Française: Comprendre Les Mots</u></a></li>
+<li><a href="https://games-able.techidaily.com/performance-meets-style-real-game-benefits-of-accessories/"><u>Performance Meets Style: Real-Game Benefits of Accessories</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-14-ultra-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi 14 Ultra Device</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1726029227789-xmedia-recode/"><u>XMedia Recodeを使用する際に発生するエラー:回避方法と修正手順 - インフォグラフィック</u></a></li>
+</ul></div>
 
