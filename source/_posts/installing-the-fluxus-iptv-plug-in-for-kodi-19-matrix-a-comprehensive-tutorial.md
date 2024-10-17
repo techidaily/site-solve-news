@@ -1,7 +1,7 @@
 ---
 title: Installing the Fluxus IPTV Plug-In for Kodi 19 Matrix - A Comprehensive Tutorial
-date: 2024-10-05T23:40:36.200Z
-updated: 2024-10-11T23:17:32.709Z
+date: 2024-10-12T21:19:53.539Z
+updated: 2024-10-17T21:49:11.850Z
 categories:
   - WonderFox
 thumbnail: https://thmb.techidaily.com/80d3fa767f44fdaa6b3c03730260a31e590107858e011b7c1ceac58f39d7b6f4.jpg
@@ -32,13 +32,6 @@ To capture BIGO Live streams on a PC, there is one application you cannot miss �
 
 _**Must Read**: The following guide on screen recording BIGO Live is for personal fair use only. WonderFox does not approve of copyright infringement in any way. Do not record any live streams for commercial purposes._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Start the Recording with HD Video Converter Factory Pro
 
 _\* Before starting recording, please locate the live streaming content you want to record._
@@ -47,33 +40,40 @@ _\* Before starting recording, please locate the live streaming content you want
 
 ![Open Screen Recorder](https://www.videoconverterfactory.com/tips/imgs-self/record-bigo-live/record-bigo-live-1.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2.** Now choose a recording mode from **Custom**, **Full-screen**, **Game recording**, or **Audio-only recording**. Then drag the four border lines to adjust the recording region if you choose the "**Custom**" mode. Click “**OK**” to confirm the recording area.
 
 ![Confirm Recording Area](https://www.videoconverterfactory.com/tips/imgs-self/record-bigo-live/record-bigo-live-2.webp) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3.** Select a video recording format from the format drop-down list. Then, modify the recording quality and choose a recording frame rate. (You can turn on the GPU Acceleration to boost the recording performance if your computer supports [hardware acceleration](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/).) Remember to uncheck the "**Microphone**" box if you don't want to record the background noise. Then set an output path at the bottom of the interface.
 
 ![Customize the Recording Settings](https://www.videoconverterfactory.com/tips/imgs-self/record-bigo-live/record-bigo-live-3.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4.** All set. Tap on the red “**REC**” button, and it will start recording on BIGO live video after a five-second countdown. Once done, press “**Ctrl + F1**” on your keyboard to end the recording. Then, you can watch the recorded shows on your PC or transfer the recording to other devices for viewing.
 
 ![Start Recording on BIGO](https://www.videoconverterfactory.com/tips/imgs-self/record-bigo-live/record-bigo-live-4.webp) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you want to trim or [merge the recorded video](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/), just close the **Screen Recorder** and enter the “**Converter**” module. Add the source files and start editing.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### More Than Just Capture BIGO LIVE
 
@@ -86,13 +86,6 @@ If you want to trim or [merge the recorded video](https://tools.techidaily.com/v
 ......
 
 [Free Download Compatible with Windows 100% Clean & Safe](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) [Free Download Compatible with Windows 100% Clean & Safe](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Record BIGO Live Without Black Screen on Android
 
@@ -114,10 +107,10 @@ Then, you can find the recorded video in the AZ screen recording's "**Video**" t
 ![Record Bigo on Android](https://www.videoconverterfactory.com/tips/imgs-self/record-bigo-live/record-bigo-live-6.webp) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Record BIGO Live Without Black Screen on iOS Devices
@@ -138,13 +131,20 @@ Then, you can find the recorded video in the Photos app.
 ![Capture Bigo Live on iPhone](https://www.videoconverterfactory.com/tips/imgs-self/record-bigo-live/record-bigo-live-7.webp) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Tips: If you cannot find the “**Screen Recording**” feature in the “**Control Center**”, enter the “**Settings**” window, go to “**Control Center**” > “**Customize Controls**”, and scroll down to tap “**Screen Recording**” > “**+**” to add the recording feature to the Control Center.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Wrap-up
 
@@ -183,10 +183,10 @@ _\* Please DO NOT use it to rip any copy-protected DVDs for commercial purposes.
 [![Back to Top](https://www.videoconverterfactory.com/tips/amp-imgs/btt.png)](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -204,24 +204,16 @@ _\* Please DO NOT use it to rip any copy-protected DVDs for commercial purposes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-ultimate-guide-to-choosing-best-free-srt-translators-online/"><u>[New] 2024 Approved The Ultimate Guide to Choosing Best FREE SRT Translators Online</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-unveiling-the-premier-5-windows-snipping-apps/"><u>[New] 2024 Approved Unveiling the Premier 5 Windows Snipping Apps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-social-media-video-trends-for-smbs/"><u>[Updated] 2024 Approved Social Media Video Trends for SMBs</u></a></li>
-<li><a href="https://solve-news.techidaily.com/web/"><u>「最高の動画エンコードWebサイトを発見!【比較検証】」</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-illustrate-images-select-caption-apps-for-your-photos-iosandroid/"><u>2024 Approved Illustrate Images Select Caption Apps for Your Photos (iOS/Android)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-optimizing-online-content-delivery-to-key-social-media-channels/"><u>2024 Approved Optimizing Online Content Delivery to Key Social Media Channels</u></a></li>
-<li><a href="https://solve-news.techidaily.com/windowsmacos-mkv-mp4-2024/"><u>優秀 Windows/macOS MKV 到 MP4 線上轉換工具: 2024 最新列表</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/a-concierge-guide-for-monitoring-facebook-livestreams-for-2024/"><u>A Concierge Guide for Monitoring Facebook Livestreams for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/boost-your-tiktok-success-with-effective-video-cropping-strategies-for-trending-content/"><u>Boost Your TikTok Success with Effective Video Cropping Strategies for Trending Content</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-10-superior-virtual-background-switchers-guide/"><u>In 2024, 10 Superior Virtual Background Switchers Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-seamless-blend-of-text-and-video-without-payment/"><u>In 2024, Seamless Blend of Text & Video Without Payment</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/precision-capturing-of-gameplay-with-obs-studio/"><u>Precision Capturing of Gameplay with OBS Studio</u></a></li>
-<li><a href="https://solve-news.techidaily.com/quick-and-easy-pro-hd-dvd-converter-rip-dvds-to-high-quality-mp4-h264-using-winx-software-in-just-half-an-hour/"><u>Quick & Easy Pro HD DVD Converter: Rip DVDs to High-Quality MP4 (H.264) Using WinX Software in Just Half an Hour</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/spotting-instagrams-newly-deactivated-accounts-for-2024/"><u>Spotting Instagram's Newly Deactivated Accounts for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/step-by-step-guide-capturing-quality-gaming-footage-with-windows-10-for-youtube/"><u>Step-by-Step Guide: Capturing Quality Gaming Footage with Windows 10 for YouTube</u></a></li>
-<li><a href="https://solve-news.techidaily.com/step-by-step-tutorial-adding-captions-to-your-dvd-movies-with-ease/"><u>Step-by-Step Tutorial: Adding Captions to Your DVD Movies with Ease</u></a></li>
-<li><a href="https://solve-news.techidaily.com/transforming-mpeg-into-mp3-exploring-online-services-vs-computer-applications/"><u>Transforming MPEG Into MP3: Exploring Online Services Vs. Computer Applications</u></a></li>
-<li><a href="https://solve-news.techidaily.com/understanding-every-dvd-format-a-comprehensive-guide/"><u>Understanding Every DVD Format: A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-news.techidaily.com/dvd-iso-winx-dvd-copy-pro/"><u>훨으로 원형 DVD 복제 및 ISO 생성을 위한 WinX DVD Copy Pro</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-enhance-visibility-youtube-thumbnails-made-simple/"><u>[Updated] Enhance Visibility YouTube Thumbnails Made Simple</u></a></li>
+<li><a href="https://solve-news.techidaily.com/windowsmacosandroidiphone/"><u>跨平台指南：在Windows、macOS、Android及iPhone上成功播放影片</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725285550773-winxvideo-ai-4k8k/"><u>如何透過 WinxVideo AI 提高圖片分辨率到 4K、8K 或更高</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-tecno-pova-5-pro-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Tecno Pova 5 Pro</u></a></li>
+<li><a href="https://solve-news.techidaily.com/die-effektivsten-methoden-zum-hochladen-von-avchd-m2ts-auf-mp4-ohne-qualitatsverlust/"><u>Die Effektivsten Methoden Zum Hochladen Von AVCHD-M2TS Auf MP4 Ohne Qualitätsverlust</u></a></li>
+<li><a href="https://solve-news.techidaily.com/effortless-download-mastery-solving-clipconvertercc-full-video-extraction-issues-for-youtube-converters/"><u>Effortless Download Mastery: Solving ClipConverter.cc Full Video Extraction Issues for YouTube Converters</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/est-ce-possible-dautomatiser-la-compression-de-fichiers-avec-le-serveur-smb-version-202n/"><u>Est-Ce Possible D'Automatiser La Compression De Fichiers Avec Le Serveur SMB Version 202N ?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723210770235-steam-file-retrieval-how-to-recover-missing-game-files-effectively-solved/"><u>Steam File Retrieval: How to Recover Missing Game Files Effectively - SOLVED!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ultimate-audio-compilations-for-video-production/"><u>Ultimate Audio Compilations for Video Production</u></a></li>
+<li><a href="https://solve-news.techidaily.com/winxdvd-eula-understanding-your-rights-with-digiarty-softwares-official-terms/"><u>WinXDVD EULA: Understanding Your Rights with Digiarty Software's Official Terms</u></a></li>
 </ul></div>
 
