@@ -1,7 +1,7 @@
 ---
 title: Come Estrarre I Sottotitoli in Miglior Forma Dai File MKV - Metodi Preferiti
-date: 2024-10-12T22:24:13.023Z
-updated: 2024-10-17T20:33:54.622Z
+date: 2024-10-17T18:18:24.270Z
+updated: 2024-10-23T16:11:36.549Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3a576f7f373a87bb16fe603f.jpg
@@ -156,6 +156,19 @@ Afficher plus
 
 ![](https://cdn.staticont.net/pages/0013/24/59bfacce83c98f6e29023d9167e646142e92751a.webp)
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
@@ -165,6 +178,13 @@ Un facteur clé qui peut ralentir votre expérience de jeu est l'utilisation d'u
 ## Qu'est-ce qu'un FPS faible et comment puis-je le vérifier ?
 
 ![](https://cdn.staticont.net/pages/0013/24/1698d2ec33be3cf4f4bedd243e199c87dbd8ac34.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Si votre jeu commence à ralentir et que l'image est saccadée, surtout lorsqu'elle bouge, c'est que votre taux d'images par seconde (IPS) est faible. Cela se produit lorsque le matériel de votre ordinateur a du mal à faire fonctionner votre jeu ou fait des heures supplémentaires. S'il travaille trop, la vitesse du jeu ralentit.
 
@@ -182,13 +202,20 @@ Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Régler les paramètres graphiques d'un jeu
@@ -216,6 +243,13 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 * [Pilotes AMD](https://www.amd.com/en/support)
 * [Pilotes NVIDIA](https://www.nvidia.com/Download/index.aspx)
 * [Pilotes Intel Graphics](https://www.intel.com/content/www/us/en/support/products/80939/graphics-drivers.html)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Installer DirectX 12
 
@@ -285,6 +319,13 @@ Par ailleurs, les jeux sur Steam sont mis à jour en permanence et il arrive sou
 
 Pour ramener la version d'un jeu à celle dont vous avez besoin, ouvrez Steam, faites un clic droit sur le jeu, choisissez **Propriétés** et allez dans l'onglet **Bêta**. Choisissez la version souhaitée dans le menu déroulant.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Désactiver les notifications
 
 Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent nuire à votre champ de vision pendant le jeu. Suivez les étapes suivantes pour désactiver toutes les notifications avant de jouer :
@@ -293,13 +334,6 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 2. Tapez "Notifications" dans la barre de recherche et sélectionnez **Notifications et paramètres d'actions** dans les résultats.
 3. Lorsque la nouvelle fenêtre s'ouvre, mettez le commutateur à bascule situé à côté de l'option **Obtenir des notifications d'applications et d'autres expéditeurs** sur **Désactivé**. Vos notifications sont maintenant désactivées.
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Régler le panneau de contrôle NVIDIA
 
@@ -376,13 +410,6 @@ Pour trouver votre adresse IP, appuyez sur la   **touche Windows** \+ **X** et s
 
 Vous pouvez maintenant retrouver le dossier avec la bonne adresse IP. Cliquez avec le bouton droit de la souris sur ce dossier et sélectionnez **Nouveau** \- **Valeur DWORD (32 bits)**. Vous devrez créer deux de ces valeurs : **TcpAckFrequency** et **TCPNoDelay**. Double-cliquez sur chacune d'elles et réglez leurs paramètres sur **1**. L'algorithme de Nagle est maintenant désactivé.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Surcadencez votre carte graphique
 
 Overclocker vos cartes graphiques signifie les pousser au-delà des spécifications affichées sur la boîte. De nombreuses cartes récentes disposent d'une fonction automatique permettant de le faire dans les paramètres de contrôle, mais il existe également des moyens de le faire manuellement. Veillez à bien connaître votre carte graphique, car si vous repoussez ses limites, elle risque de surchauffer. 
@@ -393,6 +420,13 @@ Pour overclocker :
 2. Utilisez un programme comme MSI Afterburner pour augmenter l'horloge centrale de la carte. Faites-le par intervalles de 10 MHz et réinitialisez les benchmarks au fur et à mesure.
 3. En option, vous pouvez également augmenter le voltage et l'horloge de la mémoire, mais surveillez de près la température de votre carte lorsque vous faites cela.
 4. Jouez à un jeu et vérifiez les performances.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Désactiver SysMain et Prefetch
 
@@ -422,13 +456,6 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 
 ![](https://cdn.staticont.net/pages/0013/24/e045d566ab9cee25f15459463af7614838747945.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
 
 ### Utiliser une alimentation externe
@@ -438,13 +465,6 @@ Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordin
 ### Utiliser un plan d'alimentation performant
 
 Pour modifier votre plan d'alimentation, cliquez sur la   **touche Windows** \+ **I**, tapez "alimentation" dans la zone de recherche, choisissez **Paramètres d'alimentation et de veille**, puis **Paramètres d'alimentation supplémentaires**. Si vous ne voyez pas de plan d'alimentation haute performance dans la partie gauche de l'écran, cliquez sur **Créer un plan d'alimentation** et choisissez **Haute performance**.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Empêchez votre ordinateur portable de surchauffer
 
@@ -458,13 +478,6 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 ### Mettez à niveau votre GPU et votre RAM
 
 Nous avons déjà abordé ce sujet pour les PC, mais votre ordinateur portable peut également être équipé d'un processeur graphique et d'une mémoire vive. Suivez les mêmes protocoles, et si vous n'avez pas l'habitude de travailler avec des ordinateurs portables, il est préférable de confier l'installation à un technicien expérimenté.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 
 
@@ -498,10 +511,10 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 
@@ -536,13 +549,6 @@ Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, vo
 3. Effectuez un nettoyage du disque et une maintenance du système
 4. Passez en revue votre programme de démarrage et désactivez ceux que vous n'utilisez pas.
 5. Installez de la RAM supplémentaire
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Windows 10 est-il meilleur pour les jeux ?
 
@@ -601,20 +607,20 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-achieve-success-in-twitch-top-5-livestream-strategies/"><u>[New] 2024 Approved Achieve Success in Twitch Top 5 Livestream Strategies</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-step-by-step-guide-to-eternal-unlinking-of-a-tiktok-id/"><u>[New] 2024 Approved Step-by-Step Guide to Eternal Unlinking of a TikTok ID</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-enrich-image-narratives-how-to-employ-titles-and-captions-on-videos-via-windows-for-2024/"><u>[New] Enrich Image Narratives How to Employ Titles and Captions on Videos via Windows for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-step-by-step-guide-screen-casts-on-discord/"><u>[New] In 2024, Step-by-Step Guide Screen Casts on Discord</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-vintage-racing-sims-our-favorite-five/"><u>[New] In 2024, Vintage Racing Sims Our Favorite Five</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mp4-player-guide-top-selections/"><u>2024 Approved MP4 Player Guide Top Selections</u></a></li>
-<li><a href="https://solve-news.techidaily.com/cesky-tesco-slevove-kupony-movavi-pocitani-podminky-jak-ziskat-levne-koupi/"><u>Ceský Tesco Slevové Kupóny Movavi: Počítání Podmínky Jak Získat Levné Koupi</u></a></li>
-<li><a href="https://solve-news.techidaily.com/convert-avi-files-into-mkv-format-for-free-with-movavis-online-tool/"><u>Convert AVI Files Into MKV Format For Free with Movavi's Online Tool</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-dialects-turkey-and-korea/"><u>Deciphering Dialects: Turkey and Korea</u></a></li>
-<li><a href="https://solve-news.techidaily.com/descargar-audio-de-peliculas-al-formato-mp3-sin-costo-con-herramienta-online-convertir-vob-a-mp3/"><u>Descargar Audio De Películas Al Formato MP3 Sin Costo Con Herramienta Online Convertir VOB a MP3</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/essential-tags-for-tiktok-fame-and-viral-potential-for-2024/"><u>Essential Tags for TikTok Fame and Viral Potential for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/guia-completa-para-descargar-convertidor-de-imagenes-online-gratuito-cambie-desde-pcx-a-png-con-moviavi/"><u>Guía Completa Para Descargar Convertidor De Imágenes Online Gratuito - Cambie Desde PCX a PNG Con MoviAVI</u></a></li>
-<li><a href="https://solve-news.techidaily.com/los-mejores-editores-gratuitos-de-video-del-ano-seleccion-de-las-16-mas-populares-para-cualquier-sistema-en-2024/"><u>Los Mejores Editores Gratuitos De Vídeo Del Año: Selección De Las 16 Más Populares Para Cualquier Sistema en 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/movavi-maximo-software-de-edicao-e-protecao-multimedia/"><u>Movavi: Máximo Software De Edição E Proteção Multimédia</u></a></li>
-<li><a href="https://solve-news.techidaily.com/the-ultimate-guide-mastering-the-craft-of-directing-films-in-5-essential-steps/"><u>The Ultimate Guide: Mastering the Craft of Directing Films in 5 Essential Steps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-high-cash-content-creators/"><u>[New] 2024 Approved High-Cash Content Creators</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-maximizing-tweet-control-15-premier-unfollow-utilities/"><u>[Updated] In 2024, Maximizing Tweet Control 15 Premier Unfollow Utilities</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-oppo-reno-9a-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Oppo Reno 9A Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mp3m4b-movavi/"><u>無需付費，網上改變MP3成M4B - Movavi專業解決方案</u></a></li>
+<li><a href="https://solve-news.techidaily.com/convert-aiff-audio-files-to-ogg-fast-and-reliable-online-service-at-no-cost/"><u>Convert AIFF Audio Files to Ogg - Fast and Reliable Online Service at No Cost</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/from-silence-to-soundscape-step-by-step-in-audition/"><u>From Silence to Soundscape Step-by-Step in Audition</u></a></li>
+<li><a href="https://solve-news.techidaily.com/guia-paso-a-paso-para-empezar-con-el-streaming-de-fortnite-en-windows-creadores-de-contenido/"><u>Guía Paso a Paso Para Empezar Con El Streaming De Fortnite en Windows - Creadores De Contenido</u></a></li>
+<li><a href="https://solve-news.techidaily.com/guide-pratique-pour-concevoir-des-scenarimages-les-etapes-essentielles-pour-depeindre-vos-idees-en-images/"><u>Guide Pratique Pour Concevoir Des Scénarimages : Les Étapes Essentielles Pour Dépeindre Vos Idées en Images !</u></a></li>
+<li><a href="https://solve-news.techidaily.com/how-to-effortlessly-import-videos-into-imovie-with-the-perfect-converter/"><u>How to Effortlessly Import Videos Into iMovie with the Perfect Converter</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-rog-phone-8-by-fonelab-android-recover-music/"><u>How to restore wiped music on ROG Phone 8</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/innovative-approaches-to-academic-research-the-role-of-chatgpt/"><u>Innovative Approaches to Academic Research: The Role of ChatGPT</u></a></li>
+<li><a href="https://driver-install.techidaily.com/integrate-avastar-ac-wireless-into-windows-10-gaming-laptop/"><u>Integrate Avastar-AC Wireless Into Windows 10 Gaming Laptop</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-rated-photo-presentation-apps-of-2024-compare-win-mac-and-online-options/"><u>Top Rated Photo Presentation Apps of 2024: Compare Win, Mac & Online Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-gamers-potential-with-the-asus-rt-ac88u-expert-reviews/"><u>Unleashing Gamers' Potential with the Asus RT-AC88U - Expert Reviews</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Answer: To Find the Volume of a Cone, Use the Formula $\\Frac{1}{3}\\pi R^2h$, Where $R$ Is the Radius of the Base and $H$ Is the Height."
-date: 2024-10-15T21:30:37.368Z
-updated: 2024-10-17T20:15:27.539Z
+date: 2024-10-16T17:58:11.407Z
+updated: 2024-10-23T16:29:32.404Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/f6048b78b677a0065b7683b7780e2c91c1ef9e11def92a26e974e1428f77307f.jpg
@@ -153,10 +153,10 @@ Désactivez les services d'arrière-plan pour accélérer votre ordinateur porta
 Afficher plus
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Choix spécial : [Gecata by Movavi](https://www.gecata.com/)
@@ -182,13 +182,6 @@ Le PC surpasse les consoles à cet égard, car il est toujours possible d'accél
 Cet article vous présente les réglages de performance pour les jeux que vous pouvez effectuer sur Windows 10 pour améliorer votre expérience de jeu.
 
 Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, afin de pouvoir suivre vos progrès et tester les réglages qui fonctionnent. De nombreux jeux les ont préinstallés, mais si vous installez [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards), vous ne serez jamais sans cet outil utile dans n'importe quel jeu.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 
 
@@ -242,6 +235,13 @@ Utiliser le mode de jeu Windows 10
 
 ![](https://cdn.staticont.net/default/0012/47/d22e37788bfd390747dc00a19758815599d522df.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Voici un moyen simple et rapide d'optimiser Windows 10 pour les jeux en utilisant un outil intégré au système. Le mode Jeu, apparu dans les versions les plus récentes du système d'exploitation, est conçu pour améliorer l'expérience de jeu en consacrant davantage de ressources système aux jeux. Il empêche également d'autres programmes, tels que Windows Update, d'accaparer les ressources du système pendant que vous jouez.
 
 Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** \+ **I**, tapez "mode jeu" dans la boîte de recherche et cliquez sur **Contrôler le mode jeu pour optimiser votre PC pour les jeux**.
@@ -284,6 +284,13 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 
 ![](https://cdn.staticont.net/default/0012/47/297019451ab2d6ffba248c33b083ec10c2390f59.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Le problème ici est le même qu'avec Windows Mises à jour. Steam met automatiquement à jour tous vos jeux, même ceux auxquels vous n'avez pas joué depuis longtemps. Les mises à jour en arrière-plan consomment la mémoire de votre PC et peuvent ralentir les processus de jeu.
 
 Pour empêcher Steam de mettre à jour les jeux pendant que vous jouez, allez dans votre client Steam et trouvez les options de mise à jour dans **Steam** \- **Paramètres** \- **Téléchargements**. Décochez la case **Autoriser les téléchargements pendant le jeu**.
@@ -291,6 +298,13 @@ Pour empêcher Steam de mettre à jour les jeux pendant que vous jouez, allez da
 Par ailleurs, les jeux sur Steam sont mis à jour en permanence et il arrive souvent que de nouveaux bogues apparaissent dans les nouvelles mises à jour ou que certains éléments cessent de fonctionner.
 
 Pour ramener la version d'un jeu à celle dont vous avez besoin, ouvrez Steam, faites un clic droit sur le jeu, choisissez **Propriétés** et allez dans l'onglet **Bêta**. Choisissez la version souhaitée dans le menu déroulant.
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Désactiver les notifications
 
@@ -313,10 +327,10 @@ Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiq
 6. Optimisation Threaded : Passez à **Auto**.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Régler le centre de contrôle AMD/ATI
@@ -365,6 +379,13 @@ Le choix de la première mise à niveau dépend des types de jeux auxquels vous 
 
 Quoi qu'il en soit, assurez-vous que l'équilibre des performances entre les deux est délicat, car l'un ne fonctionne pas sans l'autre. Vérifiez la mémoire et la bande passante de toute mise à niveau potentielle.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Mettez votre RAM à niveau
 
 La mise à niveau de votre RAM n'aura pas un effet aussi important que la mise à niveau du processeur ou du GPU. Mais elle peut donner à votre matériel le coup de pouce dont il a besoin pour augmenter votre fréquence d'images et améliorer votre expérience de jeu globale. 
@@ -372,13 +393,6 @@ La mise à niveau de votre RAM n'aura pas un effet aussi important que la mise �
 De nombreux jeux requièrent une mémoire vive de 8 Go, mais ce chiffre augmente régulièrement, car les titres les plus récents recommandent une mémoire vive de 12 Go. 
 
 Si vous voulez rester en tête de la courbe, 16 Go suffiront pour l'instant. Mais si vous voulez utiliser des services de streaming en arrière-plan comme Twitch, Discord et YouTube, vous devrez passer à 32 Go pour pouvoir tout faire fonctionner sans problème.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Désactiver l'algorithme de Nagle
 
@@ -432,32 +446,26 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Utiliser une alimentation externe
 
 Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordinateurs portables afin de les maintenir en vie pendant de plus longues durées. Cela affectera considérablement l'expérience de jeu car votre RAM, vos cartes graphiques et votre CPU ne fonctionneront pas à pleine capacité. Pour remédier à ce problème, connectez votre ordinateur portable à son alimentation externe et assurez-vous que vos paramètres de contrôle permettent d'obtenir des performances optimales lorsqu'il est connecté.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Utiliser un plan d'alimentation performant
 
 Pour modifier votre plan d'alimentation, cliquez sur la   **touche Windows** \+ **I**, tapez "alimentation" dans la zone de recherche, choisissez **Paramètres d'alimentation et de veille**, puis **Paramètres d'alimentation supplémentaires**. Si vous ne voyez pas de plan d'alimentation haute performance dans la partie gauche de l'écran, cliquez sur **Créer un plan d'alimentation** et choisissez **Haute performance**.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Empêchez votre ordinateur portable de surchauffer
 
@@ -503,23 +511,9 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Foire aux questions 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Comment optimiser mon ordinateur pour les jeux ?
 
@@ -607,18 +601,20 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-nostalgia-bites-the-best-kiddie-games-ever/"><u>[Updated] In 2024, Nostalgia Bites The Best Kiddie Games Ever</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-depth-skype-audio-capture-guide-with-obs-software/"><u>[Updated] In-Depth Skype Audio Capture Guide with OBS Software</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-the-heart-of-srt-in-depth/"><u>2024 Approved Exploring the Heart of SRT in Depth</u></a></li>
-<li><a href="https://solve-news.techidaily.com/comment-gravouer-sans-frais-des-films-au-format-hevch265-pour-une-qualite-de-streaming-superieure/"><u>Comment Gravouer Sans Frais Des Films Au Format HEVC/H.265 Pour Une Qualité De Streaming Supérieure ?</u></a></li>
-<li><a href="https://solve-news.techidaily.com/complete-winxdvd-operating-procedure-an-ultimate-users-handbook/"><u>Complete WinXDVD Operating Procedure: An Ultimate User's Handbook</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-itel-a70-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Itel A70 Without Password?</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-how-to-download-videoleap-on-macbook/"><u>In 2024, How to Download Videoleap on MacBook</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-mastering-video-record-with-vlc/"><u>In 2024, Mastering Video Record with VLC</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-the-ultimate-handbook-to-metaverse-promotion/"><u>In 2024, The Ultimate Handbook to Metaverse Promotion</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/iphone-users-ultimate-podcast-download-techniques-for-2024/"><u>IPhone Users' Ultimate Podcast Download Techniques for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/mastering-file-conversion-with-winx-mediatrans-a-step-by-step-tutorial-for-transferring-music-videos-and-photos/"><u>Mastering File Conversion with WinX MediaTrans: A Step-by-Step Tutorial for Transferring Music, Videos, and Photos</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-modern-workflow-with-the-asus-vivobook-s-15/"><u>Mastering Modern Workflow with the ASUS Vivobook S 15</u></a></li>
-<li><a href="https://solve-news.techidaily.com/top-video-formats-on-youtube-for-optimal-downloads-in-2020-a-comprehensive-guide/"><u>Top Video Formats on YouTube for Optimal Downloads in 2020: A Comprehensive Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlock-podcast-prominence-with-advanced-seo-techniques/"><u>[New] Unlock Podcast Prominence with Advanced SEO Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-prime-ways-from-video-links-to-audio-downloads/"><u>[Updated] 2024 Approved Prime Ways From Video Links to Audio Downloads</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-laughter-layouts-design-meme-magic-on-kapwing/"><u>[Updated] Laughter Layouts Design Meme Magic on Kapwing</u></a></li>
+<li><a href="https://solve-news.techidaily.com/10-simple-steps-transforming-your-dvds-into-mp4-format-on-windows-11-and-mac/"><u>10 Simple Steps: Transforming Your DVDs Into MP4 Format on Windows 11 and Mac</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725289012602-winxvideo-ai-4k8k10k/"><u>利用 Winxvideo AI 技術進行超解析度影像升級：如何達成 4K/8K/10K效果</u></a></li>
+<li><a href="https://solve-news.techidaily.com/authentic-winx-download-platform-complimentary-access-to-top-quality-dvd-ripper-and-hd-converter-applications/"><u>Authentic WinX Download Platform: Complimentary Access to Top-Quality DVD Ripper & HD Converter Applications</u></a></li>
+<li><a href="https://solve-news.techidaily.com/como-utilizar-la-inteligencia-artificial-de-winxvideo-para-mejorar-y-revertir-fotografias-en-calidad-4k-8k-e-imax/"><u>Cómo Utilizar La Inteligencia Artificial De Winxvideo Para Mejorar Y Revertir Fotografías en Calidad 4K, 8K E IMAX</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/datensicher-apple-id-kennwortanderung-ohne-informationsverlust-erklart/"><u>Datensicher: Apple-ID-Kennwortänderung Ohne Informationsverlust Erklärt!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/fresh-takes-on-favorites-movie-alternate-list/"><u>Fresh Takes on Favorites - Movie Alternate List</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hp-elitebook-x360-1030-g2-latest-system-updates-and-drivers/"><u>HP EliteBook X360 1030 G2: Latest System Updates and Drivers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/inexpensive-chinese-virtual-reality-helmets-for-2024/"><u>Inexpensive Chinese Virtual Reality Helmets for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/les-5-techniques-les-plus-efficaces-pour-ameliorer-la-qualite-dimage-en-2-cuisez/"><u>Les 5 Techniques Les Plus Efficaces Pour Améliorer La Qualité D'Image en 2 Cuisez</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mp3-vs-aac-comparing-audio-quality-and-listener-preference/"><u>MP3 vs AAC: Comparing Audio Quality and Listener Preference</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-guide-to-downloading-and-updating-thunderbolt-drivers-for-windows-computers/"><u>Ultimate Guide to Downloading and Updating Thunderbolt Drivers for Windows Computers</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ultimate-guide-to-swiftly-transferring-your-iphone-content-onto-a-pc-discover-7-effective-techniques/"><u>Ultimate Guide to Swiftly Transferring Your iPhone Content Onto a PC - Discover 7 Effective Techniques</u></a></li>
 </ul></div>
 

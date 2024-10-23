@@ -1,7 +1,7 @@
 ---
 title: Trasforma I Tuoi Video VOC in MP4 Senza Costo Con Movavi - Conversione OnLine Gratuita
-date: 2024-10-13T19:33:38.067Z
-updated: 2024-10-17T16:08:03.453Z
+date: 2024-10-22T16:29:30.945Z
+updated: 2024-10-23T16:30:58.195Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4255ce54480ebe44b63f8c8e.jpg
@@ -162,13 +162,6 @@ Afficher plus
 
 Un facteur clé qui peut ralentir votre expérience de jeu est l'utilisation d'un enregistreur de qualité inférieure pendant le jeu. C'est pourquoi notre choix spécial pour optimiser votre PC pour les jeux sur Windows 10 est Gecata by Movavi. Ce programme peut enregistrer le gameplay en 4K et jusqu'à 120 FPS sans perte de performance. Il est facile à utiliser et est livré avec une version d'essai gratuite.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Qu'est-ce qu'un FPS faible et comment puis-je le vérifier ?
 
 ![](https://cdn.staticont.net/pages/0013/24/1698d2ec33be3cf4f4bedd243e199c87dbd8ac34.webp)
@@ -190,13 +183,6 @@ Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
 
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Régler les paramètres graphiques d'un jeu
 
@@ -228,6 +214,13 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 
 ![](https://cdn.staticont.net/default/0012/47/72e52d810cb1f6f8d15a641fc4b287b8c43fbcd6.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 DirectX 12 est un outil indispensable pour quiconque souhaite jouer à des jeux sur Windows 10\. Pour faire simple, DirectX est l'application que le jeu utilise pour communiquer avec votre ordinateur et lui dire quoi faire. DirectX 12 est une grande amélioration par rapport à son prédécesseur, DirectX 11, car il permet aux cartes graphiques de tirer des ressources de plus d'un cœur du processeur d'un PC, ce qui augmente les fréquences d'images, améliore les effets graphiques et réduit la consommation d'énergie. Des tests ont montré une différence de 85 à 300 % dans les performances de jeu entre la version 11 et la version 12.
 
 Pour bénéficier des fonctionnalités de DirectX 12, le jeu doit avoir été développé avec cette version. La bonne nouvelle est que la liste de ces jeux s'allonge chaque jour, car de plus en plus de sociétés de jeux adoptent cette version.
@@ -249,6 +242,13 @@ Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** 
 Dans le menu qui s'ouvre, cliquez sur **Mode Jeu**. Passez à **On** pour activer le Game Mode. Si votre PC prend en charge le Mode Jeu, le système optimisera les performances de votre PC pour les jeux.
 
 Si vous ne trouvez pas ces paramètres, cela signifie que la dernière Windows Creators Update n'est pas installée sur votre PC.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Gérez vos heures actives
 
@@ -284,13 +284,6 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 
 ![](https://cdn.staticont.net/default/0012/47/297019451ab2d6ffba248c33b083ec10c2390f59.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Le problème ici est le même qu'avec Windows Mises à jour. Steam met automatiquement à jour tous vos jeux, même ceux auxquels vous n'avez pas joué depuis longtemps. Les mises à jour en arrière-plan consomment la mémoire de votre PC et peuvent ralentir les processus de jeu.
 
 Pour empêcher Steam de mettre à jour les jeux pendant que vous jouez, allez dans votre client Steam et trouvez les options de mise à jour dans **Steam** \- **Paramètres** \- **Téléchargements**. Décochez la case **Autoriser les téléchargements pendant le jeu**.
@@ -308,6 +301,13 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 3. Lorsque la nouvelle fenêtre s'ouvre, mettez le commutateur à bascule situé à côté de l'option **Obtenir des notifications d'applications et d'autres expéditeurs** sur **Désactivé**. Vos notifications sont maintenant désactivées.
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Régler le panneau de contrôle NVIDIA
 
 Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiques à la carte dans le panneau de configuration. Voici quelques-uns des meilleurs paramètres Windows 10 pour les cartes NVIDIA pour les jeux.
@@ -319,6 +319,13 @@ Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiq
 5. Mode de gestion de l'énergie : Passez à **Préférer les performances maximales**.
 6. Optimisation Threaded : Passez à **Auto**.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Régler le centre de contrôle AMD/ATI
 
 Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disent qu'elles rivalisent même avec leur concurrent NVIDIA. Modifiez ces paramètres pour optimiser les jeux de Windows 10.
@@ -326,13 +333,6 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 1. Activez l'accentuation des images d'AMD en cliquant sur **Paramètres**, puis sur **Graphiques** pour trouver le paramètre. Vous pouvez l'activer pour des jeux individuels ou globalement.
 2. Augmentez vos performances graphiques en utilisant l'overclocking. Pour ce faire, cliquez sur l'onglet **Performance**, puis sur **Tuning**, sélectionnez **Automatique**, et enfin **GPU Overclocked**.
 3. Si vous utilisez une carte AMD, vous n'avez pas besoin de MSI Afterburner pour contrôler les performances. Il vous suffit d'appuyer sur **Ctrl** \+ **Shift** \+ **O** pour que vos statistiques apparaissent dans le jeu.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Réduire la résolution dans un jeu
 
@@ -346,20 +346,33 @@ Pour ce faire, appuyez sur la   **touche Windows** \+ **I**. Tapez "pointeur de 
 
 Vous pouvez également modifier le curseur de la vitesse du pointeur pour créer la configuration qui vous convient le mieux.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Comment améliorer les performances de jeu sur Windows 10 (corrections avancées)
 
 ![](https://cdn.staticont.net/pages/0013/24/72b5f58442a79243cce53c3224e26755b436a620.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optez pour un SSD
 
@@ -430,20 +443,27 @@ C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes e
 * Définissez la **valeur** sur **0**.
 * Cliquez sur **OK**.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 
 ![](https://cdn.staticont.net/pages/0013/24/e045d566ab9cee25f15459463af7614838747945.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Utiliser une alimentation externe
 
@@ -497,13 +517,6 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Foire aux questions 
@@ -526,13 +539,6 @@ Il y a une longue liste de choses qui pourraient ralentir votre ordinateur. Voic
 3. Les pilotes du GPU ne sont pas à jour
 4. Vous utilisez DirectX 11 et devez effectuer une mise à jour.
 5. Le système fonctionne avec des paramètres de performance inférieurs pour économiser la batterie.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Comment faire fonctionner un ordinateur plus rapidement ?
 
@@ -601,24 +607,20 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/0-budget-friendly-platforms-for-youtube-branding-mastery/"><u>[New] 10 Budget-Friendly Platforms for YouTube Branding Mastery</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-navigating-regulatory-challenges-in-todays-complex-markets/"><u>[New] 2024 Approved Navigating Regulatory Challenges in Today's Complex Markets</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-enhancing-reels-with-harmonious-tunes/"><u>[New] The Ultimate Guide to Enhancing Reels with Harmonious Tunes</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-the-speakers-guide-to-captivating-visual-storytelling/"><u>[Updated] In 2024, The Speaker's Guide to Captivating Visual Storytelling</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-a-closer-look-at-the-m1-pro-versus-m1-max-in-apple-devices/"><u>2024 Approved A Closer Look at the M1 Pro Versus M1 Max in Apple Devices</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebook-evolution-what-you-need-to-know/"><u>2024 Approved Facebook Evolution What You Need to Know</u></a></li>
-<li><a href="https://solve-news.techidaily.com/abbyyai-ocr/"><u>第一生命保険株式会社がABBYY製品とAI-OCR技術で事務作業自動化に成功:重要ニュース</u></a></li>
-<li><a href="https://solve-news.techidaily.com/abbyy-cloud-services-agreement-comprehensive-tos-and-data-protection-compliance-including-gdpr-provisions/"><u>ABBYY Cloud Services Agreement: Comprehensive TOS & Data Protection Compliance Including GDPR Provisions</u></a></li>
-<li><a href="https://solve-news.techidaily.com/abbyy-secures-exclusive-licensing-deal-with-xerox-for-enhanced-document-solutions/"><u>ABBYY Secures Exclusive Licensing Deal with Xerox for Enhanced Document Solutions</u></a></li>
-<li><a href="https://solve-news.techidaily.com/abbyys-comprehensive-insights-on-the-advancements-in-smart-automation-trends/"><u>ABBYY's Comprehensive Insights on the Advancements in Smart Automation Trends</u></a></li>
-<li><a href="https://solve-news.techidaily.com/abbyydx/"><u>ABBYYによる世界的なデジタル変革(DX)現状分析プロジェクト</u></a></li>
-<li><a href="https://solve-news.techidaily.com/achieve-targeted-engagement-using-cookiebot-solutions/"><u>Achieve Targeted Engagement Using Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-news.techidaily.com/automated-data-collection-with-the-efficiency-of-cookiebot-technology/"><u>Automated Data Collection with the Efficiency of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-news.techidaily.com/boost-your-online-success-using-the-latest-cookiebot-solutions/"><u>Boost Your Online Success Using the Latest Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-news.techidaily.com/boost-your-sites-performance-smart-analytics-via-cookiebot-solutions/"><u>Boost Your Site's Performance: Smart Analytics via Cookiebot Solutions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/essential-know-how-for-video-filter-integration-on-digital-platforms/"><u>Essential Know-How for Video Filter Integration on Digital Platforms</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-honor-90-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Honor 90 GT | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-expert-tips-for-seamless-iphone-screen-recordings/"><u>In 2024, Expert Tips for Seamless iPhone Screen Recordings</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-20c-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 20C To Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-top-10-richest-youtubers/"><u>[New] 2024 Approved Top 10 Richest YouTubers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-liberate-your-listening-experience-with-pazera-the-2024-review/"><u>[New] Liberate Your Listening Experience with Pazera The 2024 Review</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-youtube-video-cuts-a-beginners-guide/"><u>[Updated] Mastering YouTube Video Cuts A Beginner's Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/7-essential-fixes-conquer-the-windows-update-hurdles/"><u>7 Essential Fixes: Conquer the Windows Update Hurdles</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enhanced-experience-the-power-of-automated-ppc-advertising/"><u>Cookiebot-Enhanced: Experience the Power of Automated PPC Advertising</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-the-innovative-solution-driving-website-customization-effortlessly/"><u>Cookiebot: The Innovative Solution Driving Website Customization Effortlessly</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-the-ultimate-solution-for-effortless-lead-generation-and-personalized-user-engagement/"><u>Cookiebot: The Ultimate Solution for Effortless Lead Generation and Personalized User Engagement</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/driven-by-the-advanced-data-capture-of-cookiebot/"><u>Driven by the Advanced Data-Capture of Cookiebot</u></a></li>
+<li><a href="https://solve-news.techidaily.com/effizientes-datensammelsystem-fur-rhenus-optimierungsansatze-verfeinern/"><u>Effizientes Datensammelsystem Für Rhenus: Optimierungsansätze Verfeinern</u></a></li>
+<li><a href="https://solve-news.techidaily.com/elevate-web-analytics-with-cookiebots-advanced-tracking-solutions/"><u>Elevate Web Analytics with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-news.techidaily.com/elevate-your-teams-performance-with-predictive-analysis-the-three-key-ways-sales-and-marketing-win-powered-by-abbyy-thought-leadership/"><u>Elevate Your Team's Performance with Predictive Analysis: The Three Key Ways Sales & Marketing Win | Powered by ABBYY Thought Leadership</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/from-watchlist-to-documents-a-comprehensible-list-of-six-mac-techniques-for-screenshotting-netflix-for-2024/"><u>From Watchlist to Documents - A Comprehensible List of Six Mac Techniques for Screenshotting Netflix for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/guide-enjoy-xbox-games-anyhow/"><u>Guide: Enjoy Xbox Games Anyhow</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-to-address-the-livekernelevent-error-number-117/"><u>Troubleshooting Tips to Address the LiveKernelEvent Error Number 117</u></a></li>
 </ul></div>
 
