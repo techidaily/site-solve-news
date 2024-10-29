@@ -1,7 +1,7 @@
 ---
 title: "Free Online Tool: Easily Edit and Scale Videos with Our Web-Based Video Modifier"
-date: 2024-10-22T17:22:32.145Z
-updated: 2024-10-23T18:15:49.354Z
+date: 2024-10-26T16:07:30.357Z
+updated: 2024-10-29T03:07:10.328Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/5078b6aad02ae129a31526ccfe9c91c4fe1b8842e3ca1f0dfa365e65b92b5c5b.PNG
@@ -167,10 +167,10 @@ Un facteur clé qui peut ralentir votre expérience de jeu est l'utilisation d'u
 ![](https://cdn.staticont.net/pages/0013/24/1698d2ec33be3cf4f4bedd243e199c87dbd8ac34.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Si votre jeu commence à ralentir et que l'image est saccadée, surtout lorsqu'elle bouge, c'est que votre taux d'images par seconde (IPS) est faible. Cela se produit lorsque le matériel de votre ordinateur a du mal à faire fonctionner votre jeu ou fait des heures supplémentaires. S'il travaille trop, la vitesse du jeu ralentit.
@@ -183,27 +183,26 @@ Cet article vous présente les réglages de performance pour les jeux que vous p
 
 Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, afin de pouvoir suivre vos progrès et tester les réglages qui fonctionnent. De nombreux jeux les ont préinstallés, mais si vous installez [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards), vous ne serez jamais sans cet outil utile dans n'importe quel jeu.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Régler les paramètres graphiques d'un jeu
 
@@ -275,6 +274,13 @@ Si vous êtes un joueur de nuit ou si vos heures de sommeil varient considérabl
 
 Pour ce faire, retournez à Windows Update, cliquez sur **Advanced options** et assurez-vous que l'interrupteur sous **We'll show a reminder when we're going to restart** est activé.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Réglez les paramètres de vos effets visuels
 
 Les interfaces utilisateur graphiques (IUG) de Windows 10 regorgent d'effets visuels fantaisistes. Néanmoins, ces jolis graphiques d'arrière-plan, dont la plupart sont activés par défaut, peuvent affecter la puissance de traitement disponible de votre PC lorsqu'un jeu est en cours d'exécution au premier plan. Ainsi, une façon d'optimiser Windows 10 pour les performances de jeu est de sacrifier certains, voire tous, ces paramètres.
@@ -290,6 +296,13 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 ### Gérer les mises à jour automatiques de Steam
 
 ![](https://cdn.staticont.net/default/0012/47/297019451ab2d6ffba248c33b083ec10c2390f59.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Le problème ici est le même qu'avec Windows Mises à jour. Steam met automatiquement à jour tous vos jeux, même ceux auxquels vous n'avez pas joué depuis longtemps. Les mises à jour en arrière-plan consomment la mémoire de votre PC et peuvent ralentir les processus de jeu.
 
@@ -327,13 +340,6 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 2. Augmentez vos performances graphiques en utilisant l'overclocking. Pour ce faire, cliquez sur l'onglet **Performance**, puis sur **Tuning**, sélectionnez **Automatique**, et enfin **GPU Overclocked**.
 3. Si vous utilisez une carte AMD, vous n'avez pas besoin de MSI Afterburner pour contrôler les performances. Il vous suffit d'appuyer sur **Ctrl** \+ **Shift** \+ **O** pour que vos statistiques apparaissent dans le jeu.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Réduire la résolution dans un jeu
 
 Cette solution entre facilement dans la catégorie des "solutions rapides". Parfois, votre système ne peut tout simplement pas gérer un jeu, et vous n'avez pas le temps de chercher des solutions à plus long terme. Allez dans les paramètres système du jeu et réduisez la résolution d'un niveau. Surveillez ensuite votre FPS jusqu'à ce que les choses s'améliorent.
@@ -345,13 +351,6 @@ Celui-ci n'a rien à voir avec l'amélioration des performances de votre PC en m
 Pour ce faire, appuyez sur la   **touche Windows** \+ **I**. Tapez "pointeur de la souris" dans la zone de recherche. Choisissez **Modifier l'affichage ou la vitesse du pointeur de la souris**. Dans la fenêtre qui s'ouvre, allez dans l'onglet **Options du pointeur** et décochez la case **Améliorer la précision du pointeur**.
 
 Vous pouvez également modifier le curseur de la vitesse du pointeur pour créer la configuration qui vous convient le mieux.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 
 
@@ -379,6 +378,13 @@ Le choix de la première mise à niveau dépend des types de jeux auxquels vous 
 
 Quoi qu'il en soit, assurez-vous que l'équilibre des performances entre les deux est délicat, car l'un ne fonctionne pas sans l'autre. Vérifiez la mémoire et la bande passante de toute mise à niveau potentielle.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Mettez votre RAM à niveau
 
 La mise à niveau de votre RAM n'aura pas un effet aussi important que la mise à niveau du processeur ou du GPU. Mais elle peut donner à votre matériel le coup de pouce dont il a besoin pour augmenter votre fréquence d'images et améliorer votre expérience de jeu globale. 
@@ -396,6 +402,13 @@ Ouvrez votre Windows Éditeur de registre en cliquant sur la   **touche Windows*
 Pour trouver votre adresse IP, appuyez sur la   **touche Windows** \+ **X** et suivez ces étapes : **Panneau de configuration** \- **Réseau et Internet** \- **Centre Réseau et partage** \- **Connexions** \- **Détails** \- **Adresse IPv4**.
 
 Vous pouvez maintenant retrouver le dossier avec la bonne adresse IP. Cliquez avec le bouton droit de la souris sur ce dossier et sélectionnez **Nouveau** \- **Valeur DWORD (32 bits)**. Vous devrez créer deux de ces valeurs : **TcpAckFrequency** et **TCPNoDelay**. Double-cliquez sur chacune d'elles et réglez leurs paramètres sur **1**. L'algorithme de Nagle est maintenant désactivé.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Surcadencez votre carte graphique
 
@@ -430,13 +443,6 @@ C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes e
 * Définissez la **valeur** sur **0**.
 * Cliquez sur **OK**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
@@ -448,6 +454,13 @@ Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur 
 ### Utiliser une alimentation externe
 
 Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordinateurs portables afin de les maintenir en vie pendant de plus longues durées. Cela affectera considérablement l'expérience de jeu car votre RAM, vos cartes graphiques et votre CPU ne fonctionneront pas à pleine capacité. Pour remédier à ce problème, connectez votre ordinateur portable à son alimentation externe et assurez-vous que vos paramètres de contrôle permettent d'obtenir des performances optimales lorsqu'il est connecté.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Utiliser un plan d'alimentation performant
 
@@ -502,10 +515,10 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 Foire aux questions 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Comment optimiser mon ordinateur pour les jeux ?
@@ -516,13 +529,6 @@ L'article ci-dessus énumère une série de mesures que vous pouvez prendre pour
 * Modifiez les paramètres de votre carte graphique
 * Mettez à niveau votre GPU et/ou votre CPU
 * Vérifiez les paramètres de performance de votre Windows.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Qu'est-ce qui ralentit mon ordinateur ?
 
@@ -601,19 +607,20 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-essential-tips-for-game-recording-on-windows-11/"><u>[New] In 2024, Essential Tips for Game-Recording on Windows 11</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-essentials-for-a-powerful-metaverse-experience-top-7/"><u>[New] The Essentials for a Powerful Metaverse Experience (Top 7)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-asmr-knowledge-beyond-what-you-see-for-2024/"><u>[Updated] ASMR Knowledge Beyond What You See for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-the-igtv-landscape-a-beginners-roadmap/"><u>[Updated] Navigating the IGTV Landscape A Beginner's Roadmap</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1-boost-engagement-seamless-steps-for-adding-wav-files-on-youtube/"><u>1. Boost Engagement: Seamless Steps for Adding WAV Files on YouTube</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1-offline-and-online-transforming-audio-files-from-wav-to-ogg-format-efficiently/"><u>1. Offline and Online: Transforming Audio Files From WAV to OGG Format Efficiently</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-frame-grabbers-companion/"><u>2024 Approved Frame Grabber's Companion</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1726030443776-mp4srt/"><u>高画質オプティマイズ：永久に変わらないMP4動画へのSRT字幕完全リンク方法</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/angle-adjustments-the-instagram-guide-for-perfecting-photo-flips-for-2024/"><u>Angle Adjustments The Instagram Guide for Perfecting Photo Flips for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/elevating-brand-presence-in-virtual-worlds/"><u>Elevating Brand Presence in Virtual Worlds</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-packing-list-travel-video-edition/"><u>In 2024, The Ultimate Packing List Travel Video Edition</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/mic-testing-how-to-test-your-microphone-quickly-and-easily/"><u>Mic Testing: How to Test Your Microphone Quickly & Easily</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1726030566651-windows-10wav/"><u>Windows 10におけるWAVファイルなどのオーディオファイルのカット方法</u></a></li>
-<li><a href="https://solve-news.techidaily.com/wmvandroid/"><u>WMVビデオがAndroidスマートフォンで遊びやすく！カジュアルな方法</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-detailed-guide-to-capturing-minecraft-gameplay-events/"><u>[New] 2024 Approved Detailed Guide to Capturing Minecraft Gameplay Events</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-advanced-editing-guide-for-creating-compelling-360-degree-videos-using-premiere-pro/"><u>[New] Advanced Editing Guide for Creating Compelling 360-Degree Videos Using Premiere Pro</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-dystopian-dreams-comparable-games-to-grand-theft-auto-v/"><u>[New] Dystopian Dreams Comparable Games To Grand Theft Auto V</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-proactive-preservation-ios-photos-to-your-snap-story/"><u>[New] In 2024, Proactive Preservation IOS Photos to Your Snap Story</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-virtual-showdown-evaluating-obs-versus-twitchs-channel-space-for-2024/"><u>[New] Virtual Showdown Evaluating OBS Versus Twitch's Channel Space for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-securely-growing-your-channels-popularity-a-one-million-goal-guide/"><u>[Updated] In 2024, Securely Growing Your Channel's Popularity A One-Million Goal Guide</u></a></li>
+<li><a href="https://solve-news.techidaily.com/202010/"><u>「新しい労務システムへ:コロナ後の未来を拓く2020年の重要な記事トップ10」</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1-digital-evolution-in-accounting-a-procurement-guidebook/"><u>1. Digital Evolution in Accounting: A Procurement Guidebook</u></a></li>
+<li><a href="https://solve-news.techidaily.com/automated-ad-targeting-with-cookiebot-technology/"><u>Automated Ad Targeting with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boost-user-engagement-and-conversion-rates-using-cookiebot-technology/"><u>Boost User Engagement and Conversion Rates Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boosting-online-success-through-cookiebot-technology-a-leap-in-marketing-automation-and-personalization/"><u>Boosting Online Success Through Cookiebot Technology: A Leap in Marketing Automation and Personalization</u></a></li>
+<li><a href="https://solve-news.techidaily.com/boosting-your-sites-performance-with-cookiebot-technology/"><u>Boosting Your Site's Performance with Cookiebot Technology</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/exciting-new-update-microsoft-excel-online-now-comes-with-essential-enhancements/"><u>Exciting New Update: Microsoft Excel Online Now Comes with Essential Enhancements</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-photography-for-the-masses-the-best-12-sites-offering-accessible-stock-images/"><u>In 2024, Photography for the Masses - The Best 12 Sites Offering Accessible Stock Images</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-convert-mts-for-samsung-galaxy-f14-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>The way to convert MTS for Samsung Galaxy F14 5G</u></a></li>
 </ul></div>
 

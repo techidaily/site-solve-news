@@ -1,7 +1,7 @@
 ---
 title: "From NEF to JPG: Expert Conversion Using Top RAW Processors - Photo Editing Guide for Professionals"
-date: 2024-10-21T16:46:21.752Z
-updated: 2024-10-23T16:45:18.164Z
+date: 2024-10-27T17:00:28.095Z
+updated: 2024-10-28T16:01:46.909Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/c3853b005ad6636456539b898eb59cf75f875d556870e0b3c55b58ed003b40eb.jpg
@@ -184,19 +184,6 @@ Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Régler les paramètres graphiques d'un jeu
 
 Chaque jeu possède des paramètres graphiques spécifiques qui peuvent vous aider à optimiser votre expérience de jeu. En voici trois que vous devriez vérifier dans le menu des paramètres du jeu avant de jouer.
@@ -241,6 +228,13 @@ Utiliser le mode de jeu Windows 10
 
 ![](https://cdn.staticont.net/default/0012/47/d22e37788bfd390747dc00a19758815599d522df.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Voici un moyen simple et rapide d'optimiser Windows 10 pour les jeux en utilisant un outil intégré au système. Le mode Jeu, apparu dans les versions les plus récentes du système d'exploitation, est conçu pour améliorer l'expérience de jeu en consacrant davantage de ressources système aux jeux. Il empêche également d'autres programmes, tels que Windows Update, d'accaparer les ressources du système pendant que vous jouez.
 
 Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** \+ **I**, tapez "mode jeu" dans la boîte de recherche et cliquez sur **Contrôler le mode jeu pour optimiser votre PC pour les jeux**.
@@ -248,6 +242,13 @@ Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** 
 Dans le menu qui s'ouvre, cliquez sur **Mode Jeu**. Passez à **On** pour activer le Game Mode. Si votre PC prend en charge le Mode Jeu, le système optimisera les performances de votre PC pour les jeux.
 
 Si vous ne trouvez pas ces paramètres, cela signifie que la dernière Windows Creators Update n'est pas installée sur votre PC.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Gérez vos heures actives
 
@@ -300,13 +301,6 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 3. Lorsque la nouvelle fenêtre s'ouvre, mettez le commutateur à bascule situé à côté de l'option **Obtenir des notifications d'applications et d'autres expéditeurs** sur **Désactivé**. Vos notifications sont maintenant désactivées.
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Régler le panneau de contrôle NVIDIA
 
 Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiques à la carte dans le panneau de configuration. Voici quelques-uns des meilleurs paramètres Windows 10 pour les cartes NVIDIA pour les jeux.
@@ -317,13 +311,6 @@ Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiq
 4. Mode faible latence : Activez-le.
 5. Mode de gestion de l'énergie : Passez à **Préférer les performances maximales**.
 6. Optimisation Threaded : Passez à **Auto**.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Régler le centre de contrôle AMD/ATI
 
@@ -336,13 +323,6 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 ### Réduire la résolution dans un jeu
 
 Cette solution entre facilement dans la catégorie des "solutions rapides". Parfois, votre système ne peut tout simplement pas gérer un jeu, et vous n'avez pas le temps de chercher des solutions à plus long terme. Allez dans les paramètres système du jeu et réduisez la résolution d'un niveau. Surveillez ensuite votre FPS jusqu'à ce que les choses s'améliorent.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Désactiver l'accélération de la souris
 
@@ -358,14 +338,14 @@ Comment améliorer les performances de jeu sur Windows 10 (corrections avancées
 
 ![](https://cdn.staticont.net/pages/0013/24/72b5f58442a79243cce53c3224e26755b436a620.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optez pour un SSD
 
@@ -443,24 +423,37 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 ![](https://cdn.staticont.net/pages/0013/24/e045d566ab9cee25f15459463af7614838747945.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Utiliser une alimentation externe
 
 Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordinateurs portables afin de les maintenir en vie pendant de plus longues durées. Cela affectera considérablement l'expérience de jeu car votre RAM, vos cartes graphiques et votre CPU ne fonctionneront pas à pleine capacité. Pour remédier à ce problème, connectez votre ordinateur portable à son alimentation externe et assurez-vous que vos paramètres de contrôle permettent d'obtenir des performances optimales lorsqu'il est connecté.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Utiliser un plan d'alimentation performant
 
@@ -478,6 +471,13 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 ### Mettez à niveau votre GPU et votre RAM
 
 Nous avons déjà abordé ce sujet pour les PC, mais votre ordinateur portable peut également être équipé d'un processeur graphique et d'une mémoire vive. Suivez les mêmes protocoles, et si vous n'avez pas l'habitude de travailler avec des ordinateurs portables, il est préférable de confier l'installation à un technicien expérimenté.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 
 
@@ -510,6 +510,13 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 
 
 Foire aux questions 
@@ -532,13 +539,6 @@ Il y a une longue liste de choses qui pourraient ralentir votre ordinateur. Voic
 3. Les pilotes du GPU ne sont pas à jour
 4. Vous utilisez DirectX 11 et devez effectuer une mise à jour.
 5. Le système fonctionne avec des paramètres de performance inférieurs pour économiser la batterie.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Comment faire fonctionner un ordinateur plus rapidement ?
 
@@ -607,22 +607,19 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-fullframe-alliance-how-to-choose-your-mcn-strategically-for-2024/"><u>[Updated] FullFrame Alliance How to Choose Your MCN Strategically for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-compreeved-guide-to-creating-stellar-youtube-outros/"><u>[Updated] In 2024, Compreeved Guide to Creating Stellar YouTube Outros</u></a></li>
-<li><a href="https://solve-news.techidaily.com/digitize-your-dvds-seamlessly-using-winx-dvd-ripper-mac-edition-iphone-ipad-mp4-support/"><u>Digitize Your DVDs Seamlessly Using WinX DVD Ripper Mac Edition - iPhone, iPad MP4 Support</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ng-hacks-for-youtube-short-creators-for-2024/"><u>Earning Hacks for YouTube Short Creators for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/extract-your-dvd-content-with-winx-dvd-ripper-quick-mp4-and-avi-conversion-for-mobile-devices/"><u>Extract Your DVD Content with WinX DVD Ripper: Quick MP4 and AVI Conversion for Mobile Devices</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/o-add-timestamps-youtube-video-for-2024/"><u>How to Add Timestamps YouTube Video for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-gopro-quik-vs-pc-video-editors-which-one-reigns-supreme/"><u>In 2024, GoPro Quik Vs. PC Video Editors Which One Reigns Supreme?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-motorola-moto-g04-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Motorola Moto G04</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/ipad-pro-vs-macbook-pro-showdown-discover-what-sets-them-apart/"><u>IPad Pro vs MacBook Pro Showdown: Discover What Sets Them Apart</u></a></li>
-<li><a href="https://solve-news.techidaily.com/mac-avchdmkvwmvmp4-mac/"><u>Mac電腦支援轉檔 AVCHD/MKV/WMV/MP4 - 最佳方便無黑客化 Mac傳輸工具選</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-opengl-error-code-3-with-nvidia/"><u>Overcoming OpenGL Error Code 3 with NVIDIA</u></a></li>
-<li><a href="https://solve-news.techidaily.com/professionelle-losungen-fur-datensicherheit-schnell-und-einfach-wie-man-dvds-in-iso-kopiert-und-speichert-mithilfe-des-tools-winx-dvd-copy-pro/"><u>Professionelle Lösungen Für Datensicherheit: Schnell Und Einfach, Wie Man DVDs in ISO Kopiert Und Speichert Mithilfe Des Tools WinX DVD Copy Pro</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/r-type-final-2-effective-solutions-for-fixing-pc-instability-issues/"><u>R-Type Final 2: Effective Solutions for Fixing PC Instability Issues</u></a></li>
-<li><a href="https://solve-news.techidaily.com/the-ultimate-list-of-the-5-greatest-dvd-players-for-mac-in-2pertween/"><u>The Ultimate List of the 5 Greatest DVD Players for Mac in 2Pertween</u></a></li>
-<li><a href="https://solve-news.techidaily.com/top-6-methods-for-successful-dvd-to-pc-conversion/"><u>Top 6 Methods for Successful DVD-to-PC Conversion</u></a></li>
-<li><a href="https://solve-news.techidaily.com/ultimate-guide-premium-quality-screen-capture-tools-with-zero-restrictions/"><u>Ultimate Guide: Premium Quality Screen Capture Tools with Zero Restrictions</u></a></li>
-<li><a href="https://solve-news.techidaily.com/winx-dvd-creator-complimentary-tool-for-easy-dvd-burning-and-editing-on-windows-11-pcs/"><u>WinX DVD Creator - Complimentary Tool for Easy DVD Burning & Editing on Windows 11 PCs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-flip-the-script-unique-approaches-to-retracing-yt-content/"><u>[New] 2024 Approved Flip the Script Unique Approaches to Retracing YT Content</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-explore-top-rated-windows-10-video-capture-software/"><u>[Updated] 2024 Approved Explore Top-Rated Windows 10 Video Capture Software</u></a></li>
+<li><a href="https://solve-news.techidaily.com/automatic-ocr-server-solutions-by-abbyy-revolutionizing-digital-document-processing/"><u>Automatic OCR Server Solutions by ABBYY: Revolutionizing Digital Document Processing</u></a></li>
+<li><a href="https://solve-news.techidaily.com/conversion-gratuite-de-fichier-rmvb-vers-mpeg-en-ligne-avec-movavi/"><u>Conversion Gratuite De Fichier RMVB Vers MPEG en Ligne Avec Movavi</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-installation-upgrading-your-scansnap-s1300i-software/"><u>Effortless Installation: Upgrading Your ScanSnap S1300i Software</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-vivo-s18-frp-by-drfone-android/"><u>How Can We Bypass Vivo S18 FRP?</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-oneplus-nord-ce-3-lite-5g-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my OnePlus Nord CE 3 Lite 5G Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/melhores-metodos-para-combinar-clipes-de-video-no-windows-11-guia-completo/"><u>Melhores Métodos Para Combinar Clipes De Vídeo No Windows 11 – Guia Completo</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ri-codifica-professionale-da-vob-a-flv-con-movavi-strumenti-online-senza-costi/"><u>Ri-Codifica Professionale Da VOB a FLV Con Movavi: Strumenti Online Senza Costi!</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/secrets-unveiled-how-to-achieve-endless-fortune-in-like-a-dragon-pc-strategies-exposed/"><u>Secrets Unveiled: How to Achieve Endless Fortune in Like A Dragon - PC Strategies Exposed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/squaring-the-circle-of-facebook-engagement-with-visuals-for-2024/"><u>Squaring the Circle of Facebook Engagement with Visuals for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210087248-9781087900186-the-inner-map/"><u>The Inner Map | Free Book</u></a></li>
+<li><a href="https://solve-news.techidaily.com/top-13-app-perfezionarsi-nel-disegno-di-loghi-senza-costi/"><u>Top 13 App Perfezionarsi Nel Disegno Di Loghi Senza Costi</u></a></li>
+<li><a href="https://solve-news.techidaily.com/trasforma-i-file-webm-in-formato-wma-gratuitamente-online-con-movavi/"><u>Trasforma I File Webm in Formato Wma Gratuitamente Online Con Movavi</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Come Estrarre I Sottotitoli in Miglior Forma Dai File MKV - Metodi Preferiti
-date: 2024-10-17T18:18:24.270Z
-updated: 2024-10-23T16:11:36.549Z
+date: 2024-10-21T22:38:40.983Z
+updated: 2024-10-29T06:31:45.693Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3a576f7f373a87bb16fe603f.jpg
@@ -156,19 +156,6 @@ Afficher plus
 
 ![](https://cdn.staticont.net/pages/0013/24/59bfacce83c98f6e29023d9167e646142e92751a.webp)
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
@@ -178,13 +165,6 @@ Un facteur clé qui peut ralentir votre expérience de jeu est l'utilisation d'u
 ## Qu'est-ce qu'un FPS faible et comment puis-je le vérifier ?
 
 ![](https://cdn.staticont.net/pages/0013/24/1698d2ec33be3cf4f4bedd243e199c87dbd8ac34.webp)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Si votre jeu commence à ralentir et que l'image est saccadée, surtout lorsqu'elle bouge, c'est que votre taux d'images par seconde (IPS) est faible. Cela se produit lorsque le matériel de votre ordinateur a du mal à faire fonctionner votre jeu ou fait des heures supplémentaires. S'il travaille trop, la vitesse du jeu ralentit.
 
@@ -196,27 +176,20 @@ Cet article vous présente les réglages de performance pour les jeux que vous p
 
 Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, afin de pouvoir suivre vos progrès et tester les réglages qui fonctionnent. De nombreux jeux les ont préinstallés, mais si vous installez [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards), vous ne serez jamais sans cet outil utile dans n'importe quel jeu.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 
 
 Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Régler les paramètres graphiques d'un jeu
 
@@ -244,13 +217,6 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 * [Pilotes NVIDIA](https://www.nvidia.com/Download/index.aspx)
 * [Pilotes Intel Graphics](https://www.intel.com/content/www/us/en/support/products/80939/graphics-drivers.html)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Installer DirectX 12
 
 ![](https://cdn.staticont.net/default/0012/47/72e52d810cb1f6f8d15a641fc4b287b8c43fbcd6.webp)
@@ -268,6 +234,13 @@ Si vous n'avez pas DirectX 12, allez-y et installez-le ; le processus ne prendra
 Utiliser le mode de jeu Windows 10
 
 ![](https://cdn.staticont.net/default/0012/47/d22e37788bfd390747dc00a19758815599d522df.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Voici un moyen simple et rapide d'optimiser Windows 10 pour les jeux en utilisant un outil intégré au système. Le mode Jeu, apparu dans les versions les plus récentes du système d'exploitation, est conçu pour améliorer l'expérience de jeu en consacrant davantage de ressources système aux jeux. Il empêche également d'autres programmes, tels que Windows Update, d'accaparer les ressources du système pendant que vous jouez.
 
@@ -319,13 +292,6 @@ Par ailleurs, les jeux sur Steam sont mis à jour en permanence et il arrive sou
 
 Pour ramener la version d'un jeu à celle dont vous avez besoin, ouvrez Steam, faites un clic droit sur le jeu, choisissez **Propriétés** et allez dans l'onglet **Bêta**. Choisissez la version souhaitée dans le menu déroulant.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Désactiver les notifications
 
 Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent nuire à votre champ de vision pendant le jeu. Suivez les étapes suivantes pour désactiver toutes les notifications avant de jouer :
@@ -372,6 +338,19 @@ Comment améliorer les performances de jeu sur Windows 10 (corrections avancées
 
 ![](https://cdn.staticont.net/pages/0013/24/72b5f58442a79243cce53c3224e26755b436a620.webp)
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
 
 ### Optez pour un SSD
@@ -385,6 +364,13 @@ Quant à l'aspect financier, si un gros SSD pour votre système d'exploitation e
 ### Mettez à niveau votre GPU/CPU
 
 ![](https://cdn.staticont.net/default/0012/47/4d8d362406e5747022cddcbbe642fe7d57c6a558.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Mettez à niveau votre GPU et votre CPU environ tous les quatre ans pour que tout fonctionne bien. Mais si vous êtes un joueur, vous devrez peut-être le faire plus tôt, car la technologie évolue beaucoup plus rapidement dans ce secteur.
 
@@ -422,10 +408,10 @@ Pour overclocker :
 4. Jouez à un jeu et vérifiez les performances.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Désactiver SysMain et Prefetch
@@ -458,6 +444,13 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Utiliser une alimentation externe
 
 Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordinateurs portables afin de les maintenir en vie pendant de plus longues durées. Cela affectera considérablement l'expérience de jeu car votre RAM, vos cartes graphiques et votre CPU ne fonctionneront pas à pleine capacité. Pour remédier à ce problème, connectez votre ordinateur portable à son alimentation externe et assurez-vous que vos paramètres de contrôle permettent d'obtenir des performances optimales lorsqu'il est connecté.
@@ -478,6 +471,13 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 ### Mettez à niveau votre GPU et votre RAM
 
 Nous avons déjà abordé ce sujet pour les PC, mais votre ordinateur portable peut également être équipé d'un processeur graphique et d'une mémoire vive. Suivez les mêmes protocoles, et si vous n'avez pas l'habitude de travailler avec des ordinateurs portables, il est préférable de confier l'installation à un technicien expérimenté.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 
 
@@ -509,13 +509,6 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)[À propos de la version Windows](https://www.gecata.com/)
 
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 
 
@@ -572,6 +565,13 @@ Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est �
 
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Avez-vous des questions ?
 
 [Visitez notre centre d'assistance](https://tools.techidaily.com/movavi/products/)
@@ -607,20 +607,18 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-high-cash-content-creators/"><u>[New] 2024 Approved High-Cash Content Creators</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-maximizing-tweet-control-15-premier-unfollow-utilities/"><u>[Updated] In 2024, Maximizing Tweet Control 15 Premier Unfollow Utilities</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-oppo-reno-9a-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Oppo Reno 9A Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://solve-news.techidaily.com/mp3m4b-movavi/"><u>無需付費，網上改變MP3成M4B - Movavi專業解決方案</u></a></li>
-<li><a href="https://solve-news.techidaily.com/convert-aiff-audio-files-to-ogg-fast-and-reliable-online-service-at-no-cost/"><u>Convert AIFF Audio Files to Ogg - Fast and Reliable Online Service at No Cost</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/from-silence-to-soundscape-step-by-step-in-audition/"><u>From Silence to Soundscape Step-by-Step in Audition</u></a></li>
-<li><a href="https://solve-news.techidaily.com/guia-paso-a-paso-para-empezar-con-el-streaming-de-fortnite-en-windows-creadores-de-contenido/"><u>Guía Paso a Paso Para Empezar Con El Streaming De Fortnite en Windows - Creadores De Contenido</u></a></li>
-<li><a href="https://solve-news.techidaily.com/guide-pratique-pour-concevoir-des-scenarimages-les-etapes-essentielles-pour-depeindre-vos-idees-en-images/"><u>Guide Pratique Pour Concevoir Des Scénarimages : Les Étapes Essentielles Pour Dépeindre Vos Idées en Images !</u></a></li>
-<li><a href="https://solve-news.techidaily.com/how-to-effortlessly-import-videos-into-imovie-with-the-perfect-converter/"><u>How to Effortlessly Import Videos Into iMovie with the Perfect Converter</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-rog-phone-8-by-fonelab-android-recover-music/"><u>How to restore wiped music on ROG Phone 8</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/innovative-approaches-to-academic-research-the-role-of-chatgpt/"><u>Innovative Approaches to Academic Research: The Role of ChatGPT</u></a></li>
-<li><a href="https://driver-install.techidaily.com/integrate-avastar-ac-wireless-into-windows-10-gaming-laptop/"><u>Integrate Avastar-AC Wireless Into Windows 10 Gaming Laptop</u></a></li>
-<li><a href="https://solve-news.techidaily.com/top-rated-photo-presentation-apps-of-2024-compare-win-mac-and-online-options/"><u>Top Rated Photo Presentation Apps of 2024: Compare Win, Mac & Online Options</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleashing-gamers-potential-with-the-asus-rt-ac88u-expert-reviews/"><u>Unleashing Gamers' Potential with the Asus RT-AC88U - Expert Reviews</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ree-vs-paid-youtubes-exclusive-picks-for-superior-opening-tutorials/"><u>[New] Free vs Paid YouTube's Exclusive Picks for Superior Opening Tutorials</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-effortless-memes-using-kinemaster-101/"><u>2024 Approved Effortless Memes Using KineMaster 101</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-proven-ways-to-create-engaging-intros-on-iphones-and-android/"><u>2024 Approved Proven Ways to Create Engaging Intros on iPhones & Android</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-newest-geforce-rtx-3080-ti-drivers-compatible-with-windows-11-10-and-7/"><u>Download the Newest GeForce RTX 3080 Ti Drivers: Compatible with Windows 11, 10 & 7</u></a></li>
+<li><a href="https://solve-news.techidaily.com/evolution-of-microsoft-os-a-comprehensive-look-at-windows-10-upgrades-over-xp/"><u>Evolution of Microsoft OS: A Comprehensive Look at Windows 10 Upgrades over XP</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guida-di-riparazione-rapida-ripristina-il-funzionamento-del-tuo-lettore-dvd-mac-non-funzionante/"><u>Guida Di Riparazione Rapida: Ripristina Il Funzionamento Del Tuo Lettore DVD Mac Non Funzionante</u></a></li>
+<li><a href="https://solve-news.techidaily.com/handbrake-software-ersteinrichtung-auf-64-bit-systemen-sucht-nach-vlc-64-bit-unterstutzung/"><u>HandBrake-Software: Ersteinrichtung Auf 64-Bit Systemen - Sucht Nach VLC 64-Bit Unterstützung</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-huawei-p60-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Huawei P60? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/live-engagement-on-fb-how-to-get-started-for-2024/"><u>Live Engagement on FB How to Get Started for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mastering-video-compression-the-ultimate-guide-to-seamless-h2-65-to-h264-format-change/"><u>Mastering Video Compression: The Ultimate Guide to Seamless H.2 65 to H.264 Format Change</u></a></li>
+<li><a href="https://solve-news.techidaily.com/optimal-software-alternatives-for-enabling-plex-hardware-acceleration/"><u>Optimal Software Alternatives for Enabling PLEX Hardware Acceleration</u></a></li>
+<li><a href="https://solve-news.techidaily.com/windows-11-avimpegmp4wmvmovflv/"><u>Windows 11用フリービデオエクスチェンジャー - AVI,MPEG,MP4,WMV,MOV,FLV形式を自由に変換</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725285008232-winxvideo-ai/"><u>Winxvideo AI フリーバージョンのダウンロード開始方法</u></a></li>
 </ul></div>
 
