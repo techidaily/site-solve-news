@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Tutorial: How to Record Your Laptop's Display with Built-In Microphone Functionality Using Any Tool"
-date: 2024-10-24T11:24:21.462Z
-updated: 2024-10-29T03:13:12.845Z
+date: 2024-10-28T22:36:46.847Z
+updated: 2024-11-03T22:58:32.754Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/4bc09bf00dd16476adc7181e127ad6390edb7499dd05b4708d5bc6f8d46016ec.png
@@ -162,13 +162,6 @@ Afficher plus
 
 Un facteur clé qui peut ralentir votre expérience de jeu est l'utilisation d'un enregistreur de qualité inférieure pendant le jeu. C'est pourquoi notre choix spécial pour optimiser votre PC pour les jeux sur Windows 10 est Gecata by Movavi. Ce programme peut enregistrer le gameplay en 4K et jusqu'à 120 FPS sans perte de performance. Il est facile à utiliser et est livré avec une version d'essai gratuite.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Qu'est-ce qu'un FPS faible et comment puis-je le vérifier ?
 
 ![](https://cdn.staticont.net/pages/0013/24/1698d2ec33be3cf4f4bedd243e199c87dbd8ac34.webp)
@@ -200,10 +193,16 @@ Chaque jeu possède des paramètres graphiques spécifiques qui peuvent vous aid
 3. **Synchronisation verticale :** Parfois, lorsque vous vous déplacez rapidement, la carte graphique ne peut pas suivre et l'écran semble se déchirer en son milieu. La synchronisation verticale aide à résoudre ce problème mais ajoute un certain décalage. Une façon de corriger ce problème est d'utiliser le VSync adaptatif ou le Triple Buffering. Vous utiliserez davantage de puissance de la carte graphique, mais vous trouverez un juste milieu entre les déchirures et le décalage.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mettez à jour les pilotes de votre GPU
@@ -280,6 +279,13 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 * Afficher le contenu de la fenêtre pendant le glissement.
 * Lisser les bords des polices d'écran.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Gérer les mises à jour automatiques de Steam
 
 ![](https://cdn.staticont.net/default/0012/47/297019451ab2d6ffba248c33b083ec10c2390f59.webp)
@@ -292,13 +298,6 @@ Par ailleurs, les jeux sur Steam sont mis à jour en permanence et il arrive sou
 
 Pour ramener la version d'un jeu à celle dont vous avez besoin, ouvrez Steam, faites un clic droit sur le jeu, choisissez **Propriétés** et allez dans l'onglet **Bêta**. Choisissez la version souhaitée dans le menu déroulant.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Désactiver les notifications
 
 Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent nuire à votre champ de vision pendant le jeu. Suivez les étapes suivantes pour désactiver toutes les notifications avant de jouer :
@@ -309,10 +308,10 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Régler le panneau de contrôle NVIDIA
@@ -362,15 +361,22 @@ Passer d'un disque dur à un disque SSD n'améliorera pas radicalement les perfo
 
 Quant à l'aspect financier, si un gros SSD pour votre système d'exploitation et vos jeux est trop cher pour vous, prenez un petit SSD pour votre système d'exploitation et gardez un gros disque dur pour les jeux.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Mettez à niveau votre GPU/CPU
 
 ![](https://cdn.staticont.net/default/0012/47/4d8d362406e5747022cddcbbe642fe7d57c6a558.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Mettez à niveau votre GPU et votre CPU environ tous les quatre ans pour que tout fonctionne bien. Mais si vous êtes un joueur, vous devrez peut-être le faire plus tôt, car la technologie évolue beaucoup plus rapidement dans ce secteur.
@@ -408,6 +414,13 @@ Pour overclocker :
 3. En option, vous pouvez également augmenter le voltage et l'horloge de la mémoire, mais surveillez de près la température de votre carte lorsque vous faites cela.
 4. Jouez à un jeu et vérifiez les performances.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Désactiver SysMain et Prefetch
 
 C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes essaient de vous aider à accéder plus rapidement aux données, mais ils ajoutent finalement des opérations inutiles qui ralentissent les jeux. Voici comment les désactiver :
@@ -430,13 +443,6 @@ C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes e
 * Définissez la **valeur** sur **0**.
 * Cliquez sur **OK**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
@@ -444,13 +450,6 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 ![](https://cdn.staticont.net/pages/0013/24/e045d566ab9cee25f15459463af7614838747945.webp)
 
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Utiliser une alimentation externe
 
@@ -460,6 +459,13 @@ Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordin
 
 Pour modifier votre plan d'alimentation, cliquez sur la   **touche Windows** \+ **I**, tapez "alimentation" dans la zone de recherche, choisissez **Paramètres d'alimentation et de veille**, puis **Paramètres d'alimentation supplémentaires**. Si vous ne voyez pas de plan d'alimentation haute performance dans la partie gauche de l'écran, cliquez sur **Créer un plan d'alimentation** et choisissez **Haute performance**.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Empêchez votre ordinateur portable de surchauffer
 
 Les ordinateurs portables sont réputés pour leur surchauffe, car tous les composants sont serrés dans le châssis et l'air circule peu. En cas de surchauffe, le système ralentit et les performances de jeu aussi. Utilisez ces conseils de prévention :
@@ -468,6 +474,19 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 2. Pour la ventilation, essayez de surélever votre ordinateur portable ou utilisez un bureau conçu pour les ordinateurs portables.
 3. Réglez les paramètres de vos ventilateurs pour qu'ils ne soient pas trop sollicités.
 4. Si vous le pouvez, jouez sur votre ordinateur portable dans un environnement frais.
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mettez à niveau votre GPU et votre RAM
 
@@ -559,13 +578,6 @@ Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est �
 
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Avez-vous des questions ?
 
 [Visitez notre centre d'assistance](https://tools.techidaily.com/movavi/products/)
@@ -601,18 +613,22 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-in-depth-look-at-cybercam-capturer/"><u>[New] 2024 Approved In-Depth Look at CyberCam Capturer</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-consolidated-calendar-management-merge-mobile-and-pc-zoom-dates/"><u>[New] In 2024, Consolidated Calendar Management Merge Mobile and PC Zoom Dates</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-twitter-vids-to-mp3-easy-extraction-techniques/"><u>[New] Twitter Vids to MP3 Easy Extraction Techniques</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-dynamic-backdrop-customization-in-teammate-windows-prepost-calls/"><u>[Updated] Dynamic Backdrop Customization in Teammate Windows, Pre/Post Calls</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-explore-diverse-backdrops-for-tiktok-videos-for-2024/"><u>[Updated] Explore Diverse Backdrops for TikTok Videos for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-maximizing-reach-strategies-from-seasoned-tubebuddy-experts-for-2024/"><u>[Updated] Maximizing Reach Strategies From Seasoned TubeBuddy Experts for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/m4a-mp3-m4r-movavi/"><u>線上將 M4A MP3 格式轉換成 M4R - 便捷的 Movavi 解決方案</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/1728499812555-fat32exfat/"><u>修复 FAT32/exFAT分区问题：用户友好的解决步骤和技巧</u></a></li>
-<li><a href="https://solve-news.techidaily.com/converter-gratuito-online-para-mp3-y-wma-soluciones-faciles-de-usar-con-movavi/"><u>Converter Gratuito Online Para Mp3 Y Wma: Soluciones Fáciles De Usar Con Movavi</u></a></li>
-<li><a href="https://solve-news.techidaily.com/convertisseur-gratuit-de-fichiers-3gp3g2-en-videos-wmv-en-ligne-movavi/"><u>Convertisseur Gratuit De Fichiers 3GP/3G2 en Vidéos WMV en Ligne - Movavi</u></a></li>
-<li><a href="https://solve-news.techidaily.com/facile-et-gratuit-convertissez-vos-fichiers-mov-en-mkv-sur-movavi-guide-rapide-pour-tous-les-utilisateurs/"><u>Facile Et Gratuit : Convertissez Vos Fichiers MOV en MKV Sur Movavi - Guide Rapide Pour Tous Les Utilisateurs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/straightforward-guide-to-flipper-sound-manipulation-on-windows-os-for-2024/"><u>Straightforward Guide to Flipper Sound Manipulation on Windows OS for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/trasforma-filetti-ogg-in-formato-wma-offline-soluzioni-ottimali-e-gratuite/"><u>Trasforma Filetti OGG in Formato WMA Offline: Soluzioni Ottimali E Gratuite</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-lut-techniques-for-professional-color-grading-and-correction/"><u>[New] LUT Techniques for Professional Color Grading and Correction</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-all-you-need-to-know-about-the-apple-m1-max-clip/"><u>[Updated] All You Need to Know About the Apple M1 Max Clip</u></a></li>
+<li><a href="https://solve-news.techidaily.com/windowsmacos-mkv-mp4-2024/"><u>優秀 Windows/macOS MKV 到 MP4 線上轉換工具: 2024 最新列表</u></a></li>
+<li><a href="https://video-capture.techidaily.com/best-virtual-race-games-roundup/"><u>Best Virtual Race Games Roundup</u></a></li>
+<li><a href="https://solve-news.techidaily.com/download-il-decoder-dvd-ottimale-a-basta-e-gratis-per-tutti-i-dischi/"><u>Download Il Decoder DVD Ottimale a Basta E Gratis per Tutti I Dischi</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-flipping-order-inverting-the-flow-of-your-youtube-watch-list/"><u>In 2024, Flipping Order Inverting the Flow of Your YouTube Watch List</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-transforming-photos-adding-motion-blur-to-peoples-portraits-with-picsart/"><u>In 2024, Transforming Photos Adding Motion Blur to People's Portraits with Picsart</u></a></li>
+<li><a href="https://solve-news.techidaily.com/jpeg-image-clarity-enhancement-4-free-techniques-that-work/"><u>JPEG Image Clarity Enhancement: 4 FREE Techniques That Work</u></a></li>
+<li><a href="https://solve-news.techidaily.com/kostenlose-anleitung-zum-burnen-von-vob-dateien-auf-dvd-mit-windows-10-freeware-losungen/"><u>Kostenlose Anleitung Zum Burnen Von VOB-Dateien Auf DVD Mit Windows 10 - Freeware Lösungen</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-sm-bus-controller-drivers-for-windows-operating-systems-windows-11-10-8-and-7/"><u>Latest SM Bus Controller Drivers for Windows Operating Systems (Windows 11, 10, 8 & 7)</u></a></li>
+<li><a href="https://solve-news.techidaily.com/quick-and-easy-pro-hd-dvd-converter-rip-dvds-to-high-quality-mp4-h264-using-winx-software-in-just-half-an-hour/"><u>Quick & Easy Pro HD DVD Converter: Rip DVDs to High-Quality MP4 (H.264) Using WinX Software in Just Half an Hour</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/samsung-tv-woes-heres-how-to-fix-unresponsive-and-missing-apps/"><u>Samsung TV Woes? Here's How to Fix Unresponsive and Missing Apps!</u></a></li>
+<li><a href="https://techidaily.com/solved-photos-disappeared-from-iphone-se-2020-suddenly-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Solved Photos Disappeared from iPhone SE (2020) Suddenly | Stellar</u></a></li>
+<li><a href="https://solve-news.techidaily.com/step-by-step-guide-capturing-quality-gaming-footage-with-windows-10-for-youtube/"><u>Step-by-Step Guide: Capturing Quality Gaming Footage with Windows 10 for YouTube</u></a></li>
+<li><a href="https://solve-news.techidaily.com/step-by-step-tutorial-adding-captions-to-your-dvd-movies-with-ease/"><u>Step-by-Step Tutorial: Adding Captions to Your DVD Movies with Ease</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-your-selling-strategy-with-lazlive-live-selling/"><u>Updated In 2024, Your Selling Strategy With LazLive Live Selling</u></a></li>
+<li><a href="https://solve-news.techidaily.com/dvd-iso-winx-dvd-copy-pro/"><u>훨으로 원형 DVD 복제 및 ISO 생성을 위한 WinX DVD Copy Pro</u></a></li>
 </ul></div>
 
