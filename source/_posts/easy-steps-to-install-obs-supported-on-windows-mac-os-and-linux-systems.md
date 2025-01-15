@@ -1,7 +1,7 @@
 ---
 title: "Easy Steps to Install OBS: Supported on Windows, Mac OS & Linux Systems"
-date: 2025-01-05T17:43:17.248Z
-updated: 2025-01-09T17:40:02.184Z
+date: 2025-01-08T04:51:25.978Z
+updated: 2025-01-14T23:43:56.353Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/5b80927e68923eec1d1361008f6bde3827f135dcc6188baf767c77fe55f4ad9e.png
@@ -153,7 +153,7 @@ Désactivez les services d'arrière-plan pour accélérer votre ordinateur porta
 Afficher plus
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Choix spécial : [Gecata by Movavi](https://www.gecata.com/)
@@ -165,10 +165,6 @@ Afficher plus
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
 Un facteur clé qui peut ralentir votre expérience de jeu est l'utilisation d'un enregistreur de qualité inférieure pendant le jeu. C'est pourquoi notre choix spécial pour optimiser votre PC pour les jeux sur Windows 10 est Gecata by Movavi. Ce programme peut enregistrer le gameplay en 4K et jusqu'à 120 FPS sans perte de performance. Il est facile à utiliser et est livré avec une version d'essai gratuite.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Qu'est-ce qu'un FPS faible et comment puis-je le vérifier ?
 
@@ -191,6 +187,10 @@ Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
 
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Régler les paramètres graphiques d'un jeu
 
@@ -235,6 +235,10 @@ Si vous n'avez pas DirectX 12, allez-y et installez-le ; le processus ne prendra
 Utiliser le mode de jeu Windows 10
 
 ![](https://cdn.staticont.net/default/0012/47/d22e37788bfd390747dc00a19758815599d522df.webp)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Voici un moyen simple et rapide d'optimiser Windows 10 pour les jeux en utilisant un outil intégré au système. Le mode Jeu, apparu dans les versions les plus récentes du système d'exploitation, est conçu pour améliorer l'expérience de jeu en consacrant davantage de ressources système aux jeux. Il empêche également d'autres programmes, tels que Windows Update, d'accaparer les ressources du système pendant que vous jouez.
 
@@ -295,10 +299,6 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 3. Lorsque la nouvelle fenêtre s'ouvre, mettez le commutateur à bascule situé à côté de l'option **Obtenir des notifications d'applications et d'autres expéditeurs** sur **Désactivé**. Vos notifications sont maintenant désactivées.
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Régler le panneau de contrôle NVIDIA
 
 Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiques à la carte dans le panneau de configuration. Voici quelques-uns des meilleurs paramètres Windows 10 pour les cartes NVIDIA pour les jeux.
@@ -311,7 +311,7 @@ Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiq
 6. Optimisation Threaded : Passez à **Auto**.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Régler le centre de contrôle AMD/ATI
@@ -323,16 +323,12 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 3. Si vous utilisez une carte AMD, vous n'avez pas besoin de MSI Afterburner pour contrôler les performances. Il vous suffit d'appuyer sur **Ctrl** \+ **Shift** \+ **O** pour que vos statistiques apparaissent dans le jeu.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Réduire la résolution dans un jeu
 
 Cette solution entre facilement dans la catégorie des "solutions rapides". Parfois, votre système ne peut tout simplement pas gérer un jeu, et vous n'avez pas le temps de chercher des solutions à plus long terme. Allez dans les paramètres système du jeu et réduisez la résolution d'un niveau. Surveillez ensuite votre FPS jusqu'à ce que les choses s'améliorent.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Désactiver l'accélération de la souris
 
@@ -341,10 +337,6 @@ Celui-ci n'a rien à voir avec l'amélioration des performances de votre PC en m
 Pour ce faire, appuyez sur la   **touche Windows** \+ **I**. Tapez "pointeur de la souris" dans la zone de recherche. Choisissez **Modifier l'affichage ou la vitesse du pointeur de la souris**. Dans la fenêtre qui s'ouvre, allez dans l'onglet **Options du pointeur** et décochez la case **Améliorer la précision du pointeur**.
 
 Vous pouvez également modifier le curseur de la vitesse du pointeur pour créer la configuration qui vous convient le mieux.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 
 
@@ -372,6 +364,10 @@ Le choix de la première mise à niveau dépend des types de jeux auxquels vous 
 
 Quoi qu'il en soit, assurez-vous que l'équilibre des performances entre les deux est délicat, car l'un ne fonctionne pas sans l'autre. Vérifiez la mémoire et la bande passante de toute mise à niveau potentielle.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Mettez votre RAM à niveau
 
 La mise à niveau de votre RAM n'aura pas un effet aussi important que la mise à niveau du processeur ou du GPU. Mais elle peut donner à votre matériel le coup de pouce dont il a besoin pour augmenter votre fréquence d'images et améliorer votre expérience de jeu globale. 
@@ -389,10 +385,6 @@ Ouvrez votre Windows Éditeur de registre en cliquant sur la   **touche Windows*
 Pour trouver votre adresse IP, appuyez sur la   **touche Windows** \+ **X** et suivez ces étapes : **Panneau de configuration** \- **Réseau et Internet** \- **Centre Réseau et partage** \- **Connexions** \- **Détails** \- **Adresse IPv4**.
 
 Vous pouvez maintenant retrouver le dossier avec la bonne adresse IP. Cliquez avec le bouton droit de la souris sur ce dossier et sélectionnez **Nouveau** \- **Valeur DWORD (32 bits)**. Vous devrez créer deux de ces valeurs : **TcpAckFrequency** et **TCPNoDelay**. Double-cliquez sur chacune d'elles et réglez leurs paramètres sur **1**. L'algorithme de Nagle est maintenant désactivé.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Surcadencez votre carte graphique
 
@@ -426,6 +418,10 @@ C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes e
 * Double-cliquez sur la valeur **REG\_DWORD EnablePrefetcher**.
 * Définissez la **valeur** sur **0**.
 * Cliquez sur **OK**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 
 
@@ -487,13 +483,13 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 
 
 Foire aux questions 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Comment optimiser mon ordinateur pour les jeux ?
 
@@ -503,6 +499,10 @@ L'article ci-dessus énumère une série de mesures que vous pouvez prendre pour
 * Modifiez les paramètres de votre carte graphique
 * Mettez à niveau votre GPU et/ou votre CPU
 * Vérifiez les paramètres de performance de votre Windows.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Qu'est-ce qui ralentit mon ordinateur ?
 
@@ -547,7 +547,7 @@ Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est �
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Avez-vous des questions ?
@@ -585,18 +585,18 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-simplifying-itunes-add-and-listen-to-your-choice-of-podcasts/"><u>[New] In 2024, Simplifying iTunes Add and Listen to Your Choice of Podcasts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-transforming-your-spotify-list-into-a-youtube-music-collection/"><u>[Updated] Transforming Your Spotify List Into a YouTube Music Collection</u></a></li>
-<li><a href="https://solve-news.techidaily.com/winxvideoai4k8k10k/"><u>利用WinXVideoAI技術提升及修復成4K/8K/10K解析度的影片</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/cant-scroll-in-microsoft-excel-for-windows-try-these-fixes/"><u>Can't Scroll in Microsoft Excel for Windows? Try These Fixes</u></a></li>
-<li><a href="https://solve-news.techidaily.com/cd-dvdios/"><u>CDにダビング: 最新DVD音声抽出技術とiOS端末への念入り手順</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exploring-deep-learnings-concealed-mechanisms-ai-black-boxes-revealed/"><u>Exploring Deep Learning's Concealed Mechanisms: AI Black Boxes Revealed</u></a></li>
-<li><a href="https://win-answers.techidaily.com/guide-to-repairing-steam-cloud-disconnection-errors-successfully/"><u>Guide to Repairing Steam Cloud Disconnection Errors Successfully</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/how-to-share-screen-on-google-meet-desktop-and-mobile-for-2024/"><u>How to Share Screen on Google Meet [Desktop and Mobile] for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-zte-axon-40-lite-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on ZTE Axon 40 Lite</u></a></li>
-<li><a href="https://solve-news.techidaily.com/step-by-step-troubleshooting-for-fluctuating-display-problems-on-windows-nx-machines/"><u>Step-by-Step Troubleshooting for Fluctuating Display Problems on Windows nX Machines</u></a></li>
-<li><a href="https://solve-news.techidaily.com/step-by-step-tutorial-playing-mov-movies-on-your-surface-neo-device/"><u>Step-by-Step Tutorial: Playing MOV Movies on Your Surface Neo Device</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/stock-restock-alert-non-apple-branded-accessory-for-the-apple-watch-ultra-is-back-zdnet-insights/"><u>Stock Restock Alert: Non-Apple Branded Accessory for the Apple Watch Ultra Is Back | ZDNet Insights</u></a></li>
-<li><a href="https://some-skills.techidaily.com/uncomplicated-technique-for-win-os-clown-sound-changes-for-2024/"><u>Uncomplicated Technique for Win-OS Clown Sound Changes for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-masking-methods-for-confidential-recordings/"><u>[New] In 2024, Masking Methods for Confidential Recordings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-elevating-videogame-recording-the-steam-methodology-for-2024/"><u>[Updated] Elevating Videogame Recording The Steam Methodology for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-best-8-stream-modifiers-for-flawless-webcam-videos/"><u>2024 Approved Best 8 Stream Modifiers for Flawless Webcam Videos</u></a></li>
+<li><a href="https://solve-news.techidaily.com/easy-steps-to-downloading-movies-with-popcorn-time/"><u>Easy Steps to Downloading Movies with Popcorn Time</u></a></li>
+<li><a href="https://solve-news.techidaily.com/effortlessly-get-youtube-subtitles-downloaded-discover-two-proven-diy-strategies/"><u>Effortlessly Get YouTube Subtitles Downloaded: Discover Two Proven DIY Strategies</u></a></li>
+<li><a href="https://solve-news.techidaily.com/get-your-free-premium-asmr-soundtracks-ultimate-downloading-guide-from-the-best-resources/"><u>Get Your Free Premium ASMR Soundtracks - Ultimate Downloading Guide From the Best Resources!</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/how-to-resolve-dvd-shrink-compatibility-issues-in-windows-10-and-11/"><u>How to Resolve DVD Shrink Compatibility Issues in Windows 10 and 11</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-11-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Realme 11 5G Phone without Google Account?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-no-cost-digital-revenue-prognosticator/"><u>In 2024, No-Cost Digital Revenue Prognosticator</u></a></li>
+<li><a href="https://solve-news.techidaily.com/jpeggif/"><u>JPEG画像からGIF動画への変換手順</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/les-six-meilleures-astuces-pour-surmonter-le-blocage-lors-du-redemarrage-de-windows-1011-des-solutions-facilement-accessibles/"><u>Les Six Meilleures Astuces Pour Surmonter Le Blocage Lors Du Redémarrage De Windows 10/11 : Des Solutions Facilement Accessibles</u></a></li>
 </ul></div>
 
